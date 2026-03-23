@@ -3,167 +3,277 @@
 **POV: Sage**
 **Late October 1813**
 
-The days after the colic blurred together in a haze of exhaustion and watchfulness.
+The days after the fall blurred together in a haze of guilt and tending.
 
-Promise recovered slowly, the way bodies do when they've been through trauma. For the first three days, Sage barely left his paddock. She slept in the barn on a pile of horse blankets, waking every few hours to check on him, to make sure he was still standing, still breathing, still *there*.
+Riley slept most of the first day — whatever Jennifer had mixed into that cup kept the pain at bay but pulled Riley under, deep and heavy. Sage sat in the kitchen and watched Riley breathe, counting the seconds between each inhale, listening for the hitch that would mean the cracked ribs had shifted into something worse.
 
-Jennifer finally ordered her back to the house on the fourth day. "You'll make yourself ill," she said, firm in that way she had when arguing was pointless. "Promise is past the crisis. What he needs now is rest, not a guardian who's going to collapse from exhaustion."
+Jennifer found her there at midnight, still sitting, still counting.
 
-So Sage slept in her own bed, but she was at his paddock by first light every morning. Watching. Waiting. Afraid to believe he was truly out of danger.
+"Go to bed, Sage."
 
-His appetite returned gradually. Small handfuls of bran mash at first, then hay in tiny portions, then finally his normal grain ration—though Rebecca insisted on smaller amounts spread throughout the day rather than the larger meals he'd been getting before.
+"What if something changes while—"
 
-"We were feeding him like a horse in full work," Rebecca said on the fifth day, and Sage heard the self-recrimination in her voice. "Three sessions a day, but the same feeding schedule as when he was barely being handled. His gut couldn't keep up with the change in activity."
+"Then I'll hear it. I'm a light sleeper and my room is directly above. Go."
 
-"So it was the training schedule that caused it?"
-
-"Likely a combination. More work, same food, the stress of learning so many new things so quickly..." Rebecca shook her head. "There's no way to know for certain. But we were pushing too hard. Both of us."
-
-Both of us. Not *you were pushing too hard*, though Rebecca could have said that and been justified. She'd warned Sage. Riley had raised questions. And Sage had been so caught up in the excitement of Promise's progress that she'd let those warnings slide past like water off oiled leather.
-
-"I'm sorry," Sage said. The words felt inadequate. "I should have—"
-
-"We both should have." Rebecca's voice was tired rather than angry. "I'm the one with thirty years of experience. I knew better. I saw the signs and talked myself out of them because I wanted to believe we could maintain that pace." She met Sage's eyes. "Wanting something badly enough can make you stupid. I'd forgotten that."
-
-They stood in silence, watching Promise nose through his hay pile. He looked better today—eyes brighter, stance more normal. But Sage couldn't look at him without seeing that terrible morning, the way he'd lain in the grass unable to rise, the dull pain in his eyes.
-
-"How do we move forward?" she asked finally. "How do we know when he's ready to start training again? How do we trust ourselves not to make the same mistake?"
-
-"Slowly," Rebecca said. "We move forward slowly. And we watch him instead of watching our expectations."
+Sage went. She didn't sleep. She lay in the dark and listened to the house settle, and when she closed her eyes she saw Riley falling — the terrible sideways lurch, the foot catching in the stirrup, the sound of impact. She saw Promise in the corner, trembling, gone. She saw her own hands on Promise's halter, her own voice saying *you're ready, we're all ready*, and wanted to reach back through time and cover that girl's mouth.
 
 ---
 
-A week after the colic, Promise was well enough to resume light grooming sessions. No training. No equipment except his halter. Just Sage's hands and a soft brush and the quiet routine they'd built in the spring.
+Morning brought rain and the reality of injury.
 
-Standing at his shoulder, working the brush in gentle circles, Sage found herself crying.
+Riley woke stiff and grey-faced, unable to sit up without help. Sage was there before Jennifer — had been listening from the hallway for the first sounds of movement — and got an arm behind Riley's shoulders, easing them upright while Riley breathed through clenched teeth.
 
-She'd done this before—stood here, brushed him, talked to him about nothing and everything. But it felt different now. Fragile. Like she'd been given something back that she didn't deserve.
+"I can manage," Riley said.
 
-"I almost killed you," she whispered into his neck. "I was so proud of how fast you were learning, so excited about all the progress. And I almost killed you."
+"You can't even sit up alone."
 
-Promise stood quiet under her hands. He didn't understand the words, but he seemed to understand something—leaning slightly into her touch, his breathing slow and steady.
+"I can manage *poorly*." The ghost of a smile, immediately extinguished by the cost of breathing too deep. "Help me stand?"
 
-"I don't know how to do this anymore," she continued. "I don't know how to work with you without being terrified I'm going to hurt you again."
+Standing required both of Sage's arms and most of her strength. Riley's left arm hung in its sling, useless, and the cracked ribs made every movement a negotiation with pain. By the time Riley was upright, sweat darkened the collar of the shirt they'd slept in.
 
-He turned his head to look at her, his dark eye calm and curious. No blame there. No accusation. Just... presence. The same willingness to be with her that he'd offered since the summer, undamaged by what had happened.
+"I need to—" Riley gestured vaguely toward the necessary. The flush that crept up their neck was mortifying in its helplessness.
 
-She pressed her forehead to his neck and let herself cry properly. Great heaving sobs that had been building since that terrible dawn when she'd found him down. All the fear. All the guilt. All the what-ifs that had tormented her through the long night of walking.
+"I'll walk you there and wait outside."
 
-Promise stood still through all of it. Patient. Solid. *There*.
+"Sage—"
 
-When the tears finally stopped, Sage felt emptied out. Lighter somehow, despite the heaviness of what she was feeling. She wiped her face on her sleeve and went back to brushing, and this time her hands were steadier.
+"If you fall, you'll crack the other ribs. I'm walking you there."
 
----
+Riley didn't argue further. They made it to the door and back with Sage's arm around their waist, and neither of them acknowledged the indignity because there was nothing to be done about it except endure.
 
-Rebecca wasn't sleeping well. Sage noticed it in the shadows under her eyes, the way her attention drifted during conversations. The careful mask she wore during the day cracked sometimes in the evenings, revealing something raw underneath.
+This became the rhythm of the days that followed. Sage woke early, helped Riley sit, helped Riley stand, helped Riley to the necessary and back. She brought meals on a tray because Riley couldn't manage the stairs to the dining room — couldn't manage stairs at all for the first four days. She helped Riley change the bandages on the shoulder when Jennifer was busy with the afternoon rounds. She learned to read the particular set of Riley's jaw that meant the pain was bad but Riley wouldn't say so, and she learned to appear with Jennifer's tincture before Riley had to ask.
 
-"You're not eating," Jennifer observed at dinner one night, nearly two weeks after the colic.
+"You don't have to do all this," Riley said on the third afternoon, sitting in the window seat of the small bedroom Jennifer had set up for convalescence. The rain had stopped, and weak sunlight fell across Riley's face, illuminating the bruise that had bloomed purple-green along the left jaw where it had struck the ground.
 
-"Not hungry."
+"Who else is going to do it?"
 
-"You've not been hungry since Promise got sick. That's not sustainable."
+"Jennifer—"
 
-Rebecca set down her fork. "I keep thinking about what would have happened if we'd lost him. All that work. All that trust he'd built. Gone because I let a nineteen-year-old's enthusiasm override my own judgment."
+"Jennifer has the horses, the household, Rebecca to manage. She can't sit with you all day." Sage set the tea tray down and poured, adding the honey Riley liked without being asked. "I'm here. Let me be here."
 
-"That's not fair," Sage said quietly. "You warned me. Multiple times."
+Riley took the cup with their right hand, the only one that worked. Their fingers were still strong, still steady — it was the rest of them that had been broken.
 
-"And then I went along with it anyway." Rebecca's voice was bitter in a way Sage had never heard. "I knew better. Thirty years working with horses. Thirty years of preaching patience and proper pacing. And when it mattered, I let myself get caught up in the excitement of watching a damaged horse heal. I wanted the progress to continue. I wanted the story to be beautiful and quick and triumphant."
+"How's Promise?" Riley asked. The question they asked every time Sage appeared, before anything else.
 
-Jennifer reached across the table to take Rebecca's hand. "He survived. You saved him."
+"The same." Sage sat on the opposite end of the window seat, pulling her feet up. "Rebecca went in this morning to check his water and he bolted to the far side. She had to back out and let him settle before she could fill the trough."
 
-"We almost killed him first."
+Riley's expression tightened. "He won't let anyone near him?"
 
-"Yes. And you almost killed horses when you were twenty, too. And thirty. And forty." Jennifer's voice was gentle but unsparingly honest. "Every horseperson has losses. Has near-misses. Has moments where they look back and think *I should have known better*. You're not exempt from being human, Rebecca."
+"He let me stand at the rail yesterday. Didn't approach, but didn't bolt either." Sage wrapped her hands around her own cup. "It's like the first weeks all over again. Worse, maybe. Because before, he was afraid of humans in general. Now he's afraid of something specific."
 
-"I should be better than this."
+"The saddle."
 
-"Why? Because you're experienced? Experience doesn't make you infallible. It just means you have more regrets to carry." Jennifer squeezed her hand. "The question isn't whether you'll make mistakes. It's what you do after."
+"Not just the saddle. Rebecca tried approaching without any equipment — just herself, empty-handed, the way she did at the very beginning. He watched her but his whole body was braced. She said his eyes were..." Sage paused, searching for the word Rebecca had used. "Betrayed. She said he looked betrayed."
 
-Rebecca was quiet for a long moment. Then, slowly, she picked up her fork and took a bite.
+Riley set down the teacup very carefully. "He trusted us. We told him it was safe, and then it wasn't."
 
----
+"I told him it was safe. I was the one at his head, telling him everything was fine, right up until it wasn't." Sage's voice cracked on the last word and she pressed her lips together, holding the rest in. She would not cry in front of Riley. Riley was the one who was hurt. Riley didn't need Sage's guilt on top of everything else.
 
-Three weeks after the colic, Rebecca called Sage to the paddock fence.
+But Riley reached across the window seat with their good hand and found Sage's wrist. "Look at me."
 
-"Watch him," she said.
+Sage looked.
 
-Promise was moving around his space with his usual morning routine—checking the water trough, investigating the fence line for interesting grass, occasionally tossing his head at a fly. Normal behavior. Healthy behavior.
+"He didn't throw me because I did something wrong," Riley said. "And he didn't throw me because you told him it was safe. He threw me because I wasn't you."
 
-"What am I looking for?"
+The words hung in the rain-washed light.
 
-"Just watch."
+"What do you mean?"
 
-Sage watched. And after a few minutes, she saw it. The way Promise's ears kept flicking toward the round pen, where Riley was working with Marcus. The way his body oriented toward the activity, his attention caught and held by the training happening nearby.
+"I mean his trust is in *you*. Specifically you. Your weight, your voice, your smell, the particular way you move around him. We asked him to generalize that trust — to extend it to me because I'm a good rider and a safe person. But that's not how trust works for a horse who's been hurt the way he has." Riley's thumb moved absently against Sage's wrist, a gesture that seemed unconscious. "His body doesn't know *safe rider*. It knows *Sage*. And I'm not Sage."
 
-"He's interested," she said slowly. "He's watching the work."
+"But you were so careful. You did everything right—"
 
-"He's been doing that for a week now. Every time someone works a horse where he can see." Rebecca's voice was thoughtful. "I've been waiting to see if you'd notice."
+"Doesn't matter. Every rider who ever sat on his back before us had their legs on both sides of him. Every rider who hurt him sat that way. His body remembers that position, and his body doesn't care whose legs they are." Riley paused, breathing carefully around the ribs. "When I was lying across him, belly-down, legs on one side — that was fine. The weight was different from anything he'd experienced before. New. Not threatening. But the moment I sat up, legs down, astride —" Riley shook their head. "I felt him leave. Not physically. Mentally. One second he was present, processing, managing. The next he was gone. Back in whatever place those men put him."
 
-"I've been afraid to notice anything. Afraid I'd see what I wanted to see instead of what's actually there."
+Sage stared at Riley. "You could tell all that from the saddle?"
 
-"Good. That fear will serve you well." Rebecca turned to face her. "But at some point, fear becomes its own kind of blindness. We can't work with him again if we're too afraid to see him clearly."
-
-Sage looked at Promise, really looked, trying to see past her guilt and fear to the horse himself. He was healthy. Coat gleaming again, weight restored, eyes bright. And he was interested—not just passively watching but actively attending to the training happening around him.
-
-"He wants to work," she said.
-
-"I think so. The question is: do we trust ourselves to let him?"
-
-It wasn't a rhetorical question. Sage felt the weight of it settle in her chest.
-
-"I don't know," she admitted. "I want to. But I'm scared."
-
-"So am I." Rebecca smiled slightly—the first real smile Sage had seen from her in weeks. "Maybe that's a good sign. The dangerous times are when we're not scared at all."
+"I could tell it from the half-second before he threw me." Riley's mouth twisted. "Not enough time to do anything about it, but enough to understand. He wasn't fighting me. He was fighting every rider who'd ever been up there."
 
 ---
 
-They started again the following day. Not with Promise—not yet—but with the conversation about what starting again would look like.
+Rebecca came to Riley's room that evening.
 
-One session per day. Short sessions—fifteen minutes maximum. Long rest periods between any new introductions. Constant monitoring for signs of stress: change in appetite, belly sensitivity, behavioral shifts. At the first sign of anything concerning, they would stop. Not slow down. Stop.
+She stood in the doorway for a moment, studying Riley the way she studied horses — assessing condition, cataloguing damage, reading the signs a body gave off despite its owner's attempts at composure.
 
-"We go at his pace this time," Rebecca said. "Not ours."
+"How are the ribs?" she asked.
 
-"And if his pace is slower than before?"
+"Tolerable."
 
-"Then it's slower. We have all the time in the world." Rebecca met her eyes. "That's what we forgot, in all our excitement. There was never a deadline. There was never a requirement that he be under saddle by any particular date. We invented the urgency because success felt good and we wanted more of it."
+"Liar." Rebecca entered and sat on the straight-backed chair beside the bed. She didn't ask permission. She never did. "I've been watching Promise. Three days now, from outside the round pen. Not approaching. Just observing."
 
-Sage thought about that. About how the momentum had built, each achievement leading to the next, each milestone making them hungry for the one after. They'd been so focused on forward progress that they'd forgotten to check if the foundation could support it.
+"And?"
 
-"I think," she said slowly, "I was trying to prove something. To myself, maybe. That I could help him heal. That I was good enough to be the partner he needed."
+"He's regressed badly. Won't tolerate human approach closer than fifteen feet. Flinches from the surcingle — I left one on the rail and he wouldn't go near that section of the pen. He barely tolerates the halter, and only because it's been on him throughout and he's habituated to its presence."
 
-"And were you?"
+Riley absorbed this quietly. Sage, sitting on the window seat, felt each item land like a stone dropped into still water.
 
-"I don't know anymore."
+"But it's specific," Rebecca continued, and her voice took on the particular quality it had when she was working through a problem — precise, systematic, stripping a thing down to its components. "He's not globally afraid the way he was when he arrived. He's not flinching from voices or bolting from all human presence. He ate the apple Sage left on the rail this morning, once Sage was far enough away. He watched me for twenty minutes yesterday without any signs of panic — as long as I didn't approach."
 
-Rebecca was quiet for a moment. Then: "Promise survived. That's not nothing. He survived, and he's healthy, and he's still interested in the work. That suggests your partnership hasn't been destroyed by this mistake."
+"So the trigger is proximity," Riley said. "Physical closeness. Equipment."
 
-"Hasn't it?"
+"The trigger is the *riding configuration*." Rebecca leaned forward, elbows on knees. "It wasn't about your skill, Riley. Or your weight, or even your unfamiliarity, though that contributed. It was about the position. Astride. Legs on both sides. That's how every rider who hurt him sat. His body remembered what his mind had learned to set aside."
 
-"Go find out."
+Sage thought of Riley's words from earlier that afternoon — *his body doesn't know safe rider, it knows Sage* — and felt the two observations click together like pieces of a lock.
+
+"He accepted the saddle," Sage said slowly. "Accepted the weight, the leaning, the belly-down. All of that was new. Nothing in his history to associate it with pain. But the moment Riley sat up astride —"
+
+"He was back in Thornton's yard." Rebecca nodded. "The position is the trigger. Not the person. Not the equipment. The position."
+
+The room was quiet for a moment. Rain had started again, tapping against the window.
+
+"So what do we do?" Sage asked.
+
+Rebecca looked at her steadily. "We start over. Back to basics — halter work, leading, rebuilding his tolerance of human proximity. It will take weeks to get back to where we were, possibly longer, because now the setback is layered on top of everything else."
+
+"And the backing?" Riley asked. "When we get there again — who rides him?"
+
+"Sage." Rebecca said it without hesitation. "Sage rides him first. Should have been Sage from the beginning. My logic about experience was sound in the abstract and wrong for this particular horse. Promise's trust is specific, not general, and the first person on his back needs to be the person he trusts most."
+
+The weight of it settled on Sage's shoulders — not burden, exactly, but responsibility. The understanding that when the time came, she would be the one up there, and there would be no one else to blame if it went wrong.
+
+"I'll be ready," she said.
+
+"Not yet you won't." Rebecca stood, her knees cracking. "But you will be."
 
 ---
 
-Sage walked to Promise's paddock with her heart hammering. He was at the fence when she arrived—had been waiting for her there every morning since the colic, as if reassuring her that he was still alive, still present.
+On the fourth day after the fall, Sage helped Riley downstairs for the first time.
 
-"Hello," she said softly.
+The stairs were an ordeal — each step jarring the cracked ribs, Riley's good hand white-knuckled on the banister, Sage one step below with her arm around Riley's waist, ready to catch. By the bottom, Riley was grey-faced and trembling, but they'd done it.
 
-He pushed his nose against her shoulder. The gesture that had become his signature, unchanged by everything that had happened.
+"Kitchen," Riley said through gritted teeth.
 
-She stood with him for a long time, not asking anything, just being there. The late October air was sharp with approaching winter. The trees had lost most of their leaves now, standing skeletal against the grey sky. Everything felt stripped down to essentials.
+"Chair first. Then kitchen."
 
-"I don't know if I can do this right," she finally told him. "I don't know if I'll be able to see clearly enough, go slowly enough. I'm scared I'll hurt you again."
+"Kitchen *is* the chair. The one by the fire. I've been dreaming about that chair for four days."
 
-Promise's ear swiveled toward her voice, listening even though the words meant nothing to him.
+Sage walked them to the armchair by the kitchen fire — the same one Riley had slept in that first terrible afternoon — and lowered them into it with as much care as she could manage. Riley sank back, eyes closed, and Sage watched the pain slowly ebb from their face as the fire's warmth reached them.
 
-"But I think you want to try. And Rebecca says the fear might be good—might keep me careful." She took a breath. "So if you're willing to keep teaching me, I'm willing to keep learning. Slower this time. More carefully. Watching you instead of watching my own hopes."
+"Better?" Sage asked.
 
-He nosed at her pocket, looking for an apple. She laughed—a wet, surprised sound—and gave him one.
+"Infinitely." Riley opened one eye. "I can see the stable yard from here."
 
-"Tomorrow," she said. "We'll start again tomorrow. Back in the round pen. Just the longe line, just walking. And we'll see where that takes us."
+"Is that a good thing or a bad thing?"
 
-Promise crunched his apple, unbothered by the weight of what she was feeling. Living in the present, the way horses did. Not carrying yesterday's fear into today's moment.
+"Depends on the day." Riley was quiet for a moment. "Sage. Sit down."
 
-Maybe that was its own kind of lesson. Maybe that was what she needed to learn next.
+Sage sat on the low stool beside the chair. Riley's good hand found hers again — the gesture that had become habitual between them, though neither had named it.
+
+"You're not eating," Riley said. "Jennifer told me. You're not sleeping either. You're spending every minute either with me or at Promise's fence, and you're running yourself into the ground."
+
+"I'm fine."
+
+"You're not. You're doing what you always do when you feel guilty — punishing yourself with work so you don't have to feel it."
+
+The accuracy of it stung. Sage looked at their joined hands instead of Riley's face.
+
+"Two people I love got hurt because of me," she said. The word came out before she could stop it — *love*, unexamined, unplanned, just there in the sentence like it had always been waiting. She felt her face heat but didn't take it back.
+
+Riley's fingers tightened on hers. "Promise will heal. He's healed before — from worse than this."
+
+"And you?"
+
+"Ribs mend. Shoulders go back. I've come off horses before."
+
+"Not because I pushed you into something you weren't sure about."
+
+"You didn't push me. I could have said no. Rebecca could have reconsidered. We all made this decision." Riley tugged gently on Sage's hand until she looked up. "Stop carrying all of it. It's too heavy for one person and it wasn't all yours to carry in the first place."
+
+Sage wanted to argue. Wanted to itemize every moment where she'd been the one driving forward — *he's ready, we're all ready, you'll be brilliant* — and prove that the weight was precisely hers. But Riley's eyes were steady and kind and full of something Sage wasn't ready to name, and the argument died in her throat.
+
+"When you fell," she said instead, very quietly, "I was more frightened than I've been of anything since Bath."
+
+Riley didn't ask what had happened in Bath. Didn't ask what Sage meant. Just held her hand and let the words exist between them, unhurried, undemanding.
+
+"I ran to you first," Sage said. "Not to Promise. To you. And I didn't even think about it."
+
+"I know," Riley said. "Rebecca told me."
+
+The fire cracked. Rain hit the windows. Somewhere in the house, Jennifer was moving between rooms, her footsteps a steady, practical rhythm.
+
+"When I'm better," Riley said, "we should talk about that. About... running to me first."
+
+"Yes," Sage said. "When you're better."
+
+Riley's thumb moved across her knuckles, back and forth, the smallest possible gesture of tenderness. "I'm going to fall asleep now. The tincture's kicking in. Will you—"
+
+"I'll be here."
+
+Riley's eyes closed. Within minutes their breathing evened out, deeper than it had been since the fall, and Sage sat on the stool beside the fire and held Riley's hand and didn't move.
+
+---
+
+Two weeks after the fall, Promise let Sage stand inside the round pen.
+
+Not close. Twenty feet away, back against the far rail, no equipment in her hands. She just stood there, the way she'd stood at his fence in those first months — present, patient, asking nothing.
+
+Promise watched her from his corner. His ears were forward, not pinned. His body was tense but not trembling. Progress, measured in inches.
+
+She came back the next day. And the next. On the fourth day, he took three steps toward her before stopping. On the fifth, he came close enough that she could have reached out and touched him — but she didn't. She kept her hands at her sides and let him make every choice.
+
+On the sixth day, he pushed his nose against her shoulder.
+
+The gesture — his gesture, the one that meant *here-with-you, choosing-this* — broke something open in Sage's chest. She stood perfectly still while he nosed at her jacket, her pockets, her empty hands. Not finding an apple. Not finding anything except her presence, which was apparently enough.
+
+"There you are," she whispered. "There you are."
+
+He blew out softly through his nose and stood beside her for ten full minutes before moving away.
+
+Sage walked back to the house on legs that barely held her, went to the kitchen where Riley sat by the fire reading one of Jennifer's medical texts with the good hand, and said, "He came to me."
+
+Riley looked up. Saw her face. Set down the book.
+
+"He came to me. On his own. Pushed his nose against my shoulder, just like before."
+
+"Good," Riley said, and the single word held everything — relief, and hope, and the particular generosity of someone who had been thrown by this horse and still wanted nothing but his healing.
+
+Sage sat on the stool and pressed her face into her hands, and this time she did cry, and Riley's good hand rested on the back of her neck and neither of them said anything at all.
+
+---
+
+Rebecca started the new protocol the following week.
+
+One session per day. Fifteen minutes maximum. Sage as the primary handler — not Rebecca, not Riley, just Sage. Rebuilding from the ground: halter work, leading, touch. No surcingle. No saddle. Nothing that reminded him of what had happened.
+
+"We go at his pace," Rebecca said. "Not ours. And this time we mean it."
+
+"How will we know when he's ready for more?"
+
+"He'll tell us. The same way he told us he was ready for the bit, for the long-lines, for the saddle. When he offers it — when he leans into the work instead of merely tolerating it — we'll know."
+
+Sage nodded. She thought about the timeline — weeks to rebuild what they'd lost, months before they could think about backing again. The winter stretching ahead, cold and long, with no milestones to chase.
+
+But Promise had come to her. Had pushed his nose against her shoulder and stood with her in the October rain. That meant the trust wasn't destroyed. Damaged, yes. Set back, yes. But not gone.
+
+She could work with not-gone.
+
+---
+
+That evening, Sage helped Riley to the window seat for sunset. It had become their ritual — the best light fell through the west-facing window at this hour, and Riley liked to watch the horses turned out in the paddocks, moving in their evening patterns.
+
+"Can I ask you something?" Sage said, settling onto her end of the seat.
+
+"You're going to anyway."
+
+"When Rebecca said I should be the one to ride him — when the time comes — were you..." She searched for the right word. "Did that hurt?"
+
+Riley considered this, watching Whisper canter along the far fence line, her grey coat catching the last light. "No. It was the right call. I knew it was the right call the morning it happened — knew it before I was even in the saddle." A pause. "What hurt was not trusting that instinct enough to say so."
+
+"Would you have, if I hadn't been so—"
+
+"So certain? So excited? So *you*?" Riley's mouth curved. "Maybe. Or maybe not. You're very convincing when you believe in something, Sage. That's a gift. It's also a hazard."
+
+"I'm working on the hazard part."
+
+"I know you are." Riley looked at her. The bruise along the jaw had faded to yellow-green, almost gone. The arm was still in its sling, but Riley could move the fingers now, flex the wrist. Healing, slowly, the way all healing happened. "Promise chose you. That's not a consolation prize — it's the whole point. He built his trust with you, one day at a time, and when everything fell apart, it was you he came back to. Not Rebecca with her decades of experience. Not me with my deep seat. You."
+
+"That terrifies me."
+
+"Good. It should." Riley reached over and took her hand, the gesture so natural now that Sage barely noticed the contact — only noticed when it was absent. "But you'll be ready. When the time comes, you'll be ready."
+
+Outside, the sun dropped below the tree line. The horses moved toward their shelters, dark shapes against the darkening sky. Promise stood alone in the round pen — they'd moved him back to his paddock two days ago, but he still returned to the pen sometimes, standing in the space where everything had changed.
+
+Sage watched him until the light was gone, Riley's hand warm in hers, and felt the shape of the months ahead — patient, careful, slow — settle into something she could carry.
 
 ---
 

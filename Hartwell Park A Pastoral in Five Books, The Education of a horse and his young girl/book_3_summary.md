@@ -57,11 +57,11 @@ Rebecca's correction to Sage: "You were so excited about his progress that you d
 - Promise leaves paddock for first time
 - Longe line introduced (loose work in round pen)
 - Sage knocked down—first warning about pushing too fast
-- **FORESHADOWING for colic crisis established**
+- Foreshadowing for backing crisis established
 
 ---
 
-### Chapter 21: Swift Progress (~2,100 words)
+### Chapter 21: Swift Progress
 **POV:** Sage
 **Timeline:** Early October 1813 (two weeks after Chapter 20)
 
@@ -71,134 +71,140 @@ Riley quietly observes "That's fast" and asks how many sessions per day (now thr
 
 Rebecca's warning from Ch 20 feels distant; Sage's bruise long faded. Rebecca says "when he's ready for a rider" not "if."
 
-**First warning sign:** Promise shifts away when Sage touches his belly during grooming. Rebecca notes he was "a bit girthy" that morning. They decide NOT to give him a day off—"don't want to break his momentum."
+**New second half:** Saddle introduction—Sage does all the hands-on work (lowering saddle, girthing, long-lining with saddle) because Promise trusts her. Rebecca supervises. Promise accepts saddle within days. Rebecca announces Promise is ready to be backed. The question: who rides first?
 
-Final image: Promise standing in moonlight, head slightly lower, stance slightly different. "But who would notice, in the dark, when everything had been going so well?"
+Rebecca's logic: Riley is the most experienced, best seat, most likely to stay calm. Sage agrees enthusiastically. Riley's reservations: "He doesn't know me the way he knows you. I'm not the one he trusts." But Riley defers to Rebecca's experience and Sage's certainty.
+
+Sage does weight progression work (leaning, bouncing, hanging from stirrup) in the days before the backing attempt—all from her own hands, building Promise's tolerance. Riley watches from the fence: "This part was you."
+
+Final image: Friday evening, Sage at Promise's fence telling him tomorrow will be fine. Everything prepared. Everything in order.
 
 **Key Developments:**
 - Training accelerated to three sessions/day
-- Bit, long-lining, surcingle all introduced
-- Riley's quiet warning ignored
-- **Belly sensitivity noticed but dismissed**
-- Crisis building from success, not obvious mistakes
+- Bit, long-lining, surcingle, saddle all introduced
+- Riley's quiet concerns about pace AND about who rides first
+- The wrong decision made for logical reasons
+- Crisis building from enthusiasm overriding instinct
 
 ---
 
-### Chapter 22: Something Wrong (~2,800 words)
+### Chapter 22: The Fall
 **POV:** Promise (opening), then Sage
-**Timeline:** Mid-October 1813 (night/day following Chapter 21)
+**Timeline:** Mid-October 1813 (Saturday — the backing attempt)
 
-**THE COLIC EPISODE**
+**RILEY'S FALL**
 
-Promise experiences colic overnight—inside-pain different from before-time hurts. Gut twisting, "stones-grinding" then "fire-churning." Instinct to hide weakness keeps him silent through the night (prey animal survival behavior). Found by Sage at dawn, unable to rise, dull-eyed, sweating, racing pulse.
+Promise POV opens: morning of backing attempt. Sage grooms him, saddles him, leads him to round pen. He notes the different-today energy — the tall-one-with-quiet-eyes wearing serious-work clothes.
 
-Rebecca diagnoses: "Colic. His gut's gone quiet—no sounds at all."
+Weight progression on the day: Riley leans (forearms across saddle), Promise processes — heavier weight, different smell, but same pattern-known. Belly-down across saddle — Promise tenses, settles, accepts. Four repetitions. Each time he settles faster.
 
-**Period-appropriate treatment:**
-- Walking for hours (all through day and night)
-- Linseed oil drench (administered via long-necked bottle)
-- Warm bran mash (refused at first)
-- Belly massage to stimulate gut
-- Shifts: Sage, Rebecca, Riley, Jennifer all involved
+**The mount:** Riley swings leg over, settles astride. For one or two seconds, Promise is still. Then the astride position triggers body-memory — legs-on-both-sides like before-time, like every rider who hurt him. Promise's POV: logical mind overwhelmed by body-knowing. Spooks sideways, rears, spins — the combination is unsittable. Riley thrown. Lands hard on left side — dislocated shoulder, cracked ribs.
 
-Sage's guilt surfaces: "We noticed. We didn't give him a day off." Rebecca: "Guilt won't save him. Only work will. Feel what you feel later." Jennifer's honesty: "Sometimes we do everything right and it still isn't enough."
+**Critical character beat:** Sage runs to Riley first, not to Promise. Promise bolts to far corner of round pen, trembling, sweating, terrified — regressed to arrival state.
 
-**Dawn turning point:** Promise stops differently—something shifts. Passes gas (first good sign). Gut sounds return (faint but there). Passes manure. Shows interest in bran mash. Sage buries face in his neck and cries with relief.
+Riley's insight even while injured: "He wasn't being mean. He was somewhere else. I felt it — the second I sat up, he was gone."
+
+Jennifer called, reduces dislocated shoulder (Sage holds Riley's hand through it). Riley strapped, slung, out of riding for weeks.
+
+Rebecca's assessment of Promise: "He's gone. Everything we built... he's back in Thornton's yard."
+
+Sage's guilt: "I told you he was ready. I pushed for this." Rebecca: "We were all part of this decision... His trust isn't logical. It's specific."
+
+Chapter ends concretely: Sage at the round pen rail for hours. Promise doesn't look at her. Near dusk, he drinks water — first voluntary movement. Sage sits on the floor beside Riley's chair, eats soup, listens to Riley breathe.
 
 **Key Developments:**
-- Colic crisis—near-death experience
-- Period-appropriate treatment depicted
-- All household involved in saving him
-- Crisis survived, emotional reckoning still to come
+- Riley thrown — dislocated shoulder, cracked ribs
+- Promise regresses severely (won't allow approach)
+- Astride position identified as the specific trigger
+- Sage runs to Riley first (romantic catalyst)
+- Parallels Ch 13 — Sage's enthusiasm causing harm
 
 ---
 
-### Chapter 23: After (~2,500 words)
+### Chapter 23: After
 **POV:** Sage
-**Timeline:** Late October 1813 (three weeks after colic)
+**Timeline:** Late October 1813 (weeks after the fall)
 
-Recovery chapter spanning three weeks. Sage sleeps in barn first few days; Jennifer orders her back to house. Promise's appetite returns gradually—small mash, then hay, then grain in smaller portions spread through day.
+Aftermath chapter spanning several weeks. Promise has regressed — won't allow saddle, flinches from surcingle, barely tolerates halter. Weeks of progress lost.
 
-**Rebecca's guilt revealed:** "I let a nineteen-year-old's enthusiasm override my own judgment... I wanted the story to be beautiful and quick and triumphant." Jennifer's wisdom: "Experience doesn't make you infallible. It just means you have more regrets to carry."
+**Riley's recovery and enforced intimacy:** Sage helps Riley with daily tasks — standing, walking, dressing, meals. First extended intimate time together. The indignity of injury creating closeness neither planned. Riley's hand-holding becomes habitual.
 
-One week post-colic: Sage cries into Promise's neck, releasing built-up emotion. "I almost killed you."
+**Double guilt:** Sage pushed for the backing, pushed Riley into something Riley doubted. Parallel to Ch 13 (enthusiasm → harm) felt but never stated. "Two people I love got hurt because of me" — the word "love" arrives unplanned.
 
-Three weeks post-colic: Rebecca calls Sage to watch Promise—he's oriented toward round pen, interested in training happening nearby. "He wants to work."
+**Riley's key insight:** "He didn't throw me because he's vicious. He threw me because I wasn't you." Trust is specific, not transferable. Promise's body doesn't know "safe rider" — it knows "Sage."
 
-**New training protocol established:**
-- One session per day (down from three)
-- Fifteen minutes maximum
-- Stop at first sign of concern
-- "We go at his pace this time. Not ours."
-- "There was never a deadline. We invented the urgency."
+**Rebecca's systematic analysis:** "It wasn't about Riley's skill. It was about the position. Astride. Legs on both sides. His body remembered what his mind had learned to set aside."
 
-Chapter ends with plan to return to round pen work.
+**New protocol:** Sage as primary handler going forward. One session/day, fifteen minutes max, stop at first concern. "We go at his pace. Not ours."
+
+**Promise's return:** Day six — pushes nose against Sage's shoulder. The trust isn't destroyed. Damaged, set back, but not gone.
+
+**Romantic beat:** "When you fell, I was more afraid than I've been of anything since Bath." Riley: "When I'm better, we should talk about that."
 
 **Key Developments:**
-- Both Sage AND Rebecca processing guilt
-- New slower pace established
-- Promise's interest in work returns
-- Lesson learned: "Enthusiasm is not the same as wisdom"
+- Riley's injury creates romantic catalyst (Sage/Riley)
+- Trust identified as specific to Sage, not generalizable
+- Astride position confirmed as the trigger
+- New slower pace established with Sage as primary handler
+- Promise comes back to Sage on his own terms
 
 ---
 
-### Chapter 24: Weight (~3,200 words)
+### Chapter 24: Weight
 **POV:** Sage with Promise sections
 **Timeline:** November 1813 (three weeks after returning to training)
 
-**SADDLE INTRODUCTION AND FIRST MOUNTING**
+**REBUILDING AND FIRST MOUNTING**
 
-Three weeks of slow, careful work rebuilding. Saddle introduction begins—Promise freezes when it approaches his back ("Weight means rider. Rider means pain.").
+Three weeks of slow, careful work rebuilding from the fall. Surcingle reintroduction takes four days (associated with what followed). Saddle introduction begins — Promise freezes when it approaches his back. Sage does all hands-on work.
 
 **Progression:**
 - Days 1-3: Lifting/lowering saddle until boring
 - Days 4-5: Saddle resting on withers briefly
-- Day 8: First full saddling with girth—trembling but accepts
+- Day 8: First full re-saddling with girth — trembling but accepts
 - Following days: Walking/trotting with saddle
 - Two weeks later: Leaning across saddle (weight over back)
 - Six days until boring
 - Next five days: Stirrup weight progression
-  - Days 1-2: Foot in stirrup, slight pressure—Promise sidles away
-  - Day 3: Full weight hanging from stirrup, count of three
-  - Days 4-5: More weight, longer holds, belly against saddle, leg dangling
 
-**THE MOMENT:** Sage swings leg over. Promise's internal battle—could throw her, has done it before. But "This is small-human who has never once caused him pain-deliberate." Chooses trust. "Both of them terrified. Both of them trusting anyway." Releases tension, drops head, accepts.
+**THE MOMENT:** Sage swings leg over. Promise's internal battle — body screams "rider means pain," especially now layered with the memory of throwing Riley. But "This is small-human who has never once caused him pain-deliberate." Chooses not to flee.
 
-Rebecca: "A damaged creature choosing to be vulnerable with the person who's earned his trust. That's rare. And it's precious."
+**THE PROBLEM:** He doesn't relax. Stands rigid, locked, tolerating but not accepting. Every session the same — obedient but not present. "He's not with you," Rebecca observes. Sage recognizes the Thornton parallel: forcing acceptance through repetition is what Thornton would do.
+
+Riley at the fence throughout recovery. Evening conversation: Sage names the problem — "the position itself is the trigger." Riley's question plants the seed: "Is it? Always?" — pointing toward sidesaddle without naming it.
 
 **Key Developments:**
-- Saddle work completed methodically
-- First mounting achieved—major milestone
-- Eight months from knacker's yard to accepting rider
-- Promise's choice to trust despite body memories
+- Saddle work rebuilt methodically after fall
+- First mounting achieved — but Promise tolerates, doesn't accept
+- Astride position confirmed as irreducible trigger
+- Riley's question opens the door to the sidesaddle solution
+- Chapter ends on an unsolved problem
 
 ---
 
-### Chapter 25: A Different Way (~2,700 words)
+### Chapter 25: A Different Way
 **POV:** Sage
 **Timeline:** Late November 1813
 
 **THE SIDESADDLE DISCOVERY**
 
-Two weeks of mounted work, but Promise won't relax. Obedient but not present—"tolerating, not accepting." Shuts down the moment Sage settles into the saddle. Trust exists on the ground but disappears astride.
+Sage wakes with Riley's question — "Is it? Always?" — and arrives at the sidesaddle idea. Finds Rebecca in tack room already examining the sidesaddle, independently thinking along the same lines.
 
-Rebecca's insight: "Up there, you're not you anymore. You're a rider." Astride position = every bad rider who ever hurt him. Weight centered, legs on both sides—that's how Thornton rode. His body remembers even when his mind tries to trust.
+Rebecca's analysis: "Every rider who hurt him sat astride. Thornton's men. And what happened with Riley. His body has learned: astride = danger. But sidesaddle is a shape he's never experienced — no legs on both sides, no match to anything in his body's catalogue of pain."
 
-**The solution:** Try sidesaddle—completely different weight, position, feel. "If his body has learned that a rider astride means pain, then maybe a rider who feels nothing like that won't trigger the same response."
+**The discovery:** Sidesaddle works. Promise doesn't tense when Sage settles. His head isn't locked, back isn't stiff. Present, thinking, processing — not fleeing inside himself. "He's here. He's actually here with me." By day four: free, forward trot, moving *with* her.
 
-The irony: Sage hates sidesaddle, never feels natural to her. Rebecca: "This isn't about what's comfortable for you. It's about what Promise needs. We meet him where he is, not where we want him to be."
+**Riley's generous response** (watching from fence): "He's not rejecting me. He's choosing the position that doesn't frighten him. That's smart. That's him protecting himself." Names the hard thing and sets it down. Sage credits Riley for the insight.
 
-**The discovery:** Sidesaddle works. Promise's head isn't locked, back isn't stiff. Present, thinking, processing—not fleeing inside himself. By day four: free, forward trot, moving *with* her. "He's a different horse" / "He's the same horse. We just found a way to reach him."
+Rebecca acknowledges she didn't think of sidesaddle as a trauma solution in thirty years of training. "Promise is teaching us something new."
 
-**The lesson:** "I kept trying to make him fit what I wanted... But he's not them. He's Promise." Rebecca: "A good rider isn't someone who can make any horse do anything. It's someone who can figure out what each horse needs."
-
-**Closing:** First snow of winter, last day of November. Promise in the paddock, snowflakes on his dark coat. "A horse who had found, against all odds, a partner willing to meet him exactly where he was." "Spring would come eventually. And when it did, they would be ready."
+**Closing:** First snow, last day of November. Sage and Riley standing in the kitchen doorway with hot drinks, watching snow. "We've got work to do."
 
 **Key Developments:**
-- Sidesaddle solution discovered for Promise's trauma
+- Sidesaddle solution discovered — born from Riley's fall trauma specifically
+- Riley's generosity about being "replaced" shows character depth
 - Sage must adapt to what Promise needs, not what she prefers
-- Theme reinforced: meet the horse where HE is
-- Book III ends with hope earned through difficulty
+- Book III ends with earned hope and Sage/Riley partnership deepening
 
 ---
 
@@ -210,9 +216,9 @@ The irony: Sage hates sidesaddle, never feels natural to her. Rebecca: "This isn
 - Sage competent rider on other horses
 
 **Crisis Point (Chapter 22):**
-- Colic from overwork/stress despite good intentions
-- Near-death experience
-- All progress seemingly threatened
+- Riley thrown when Promise's astride-trauma triggers during backing attempt
+- Riley injured (dislocated shoulder, cracked ribs), Promise regresses severely
+- Sage's enthusiasm caused harm to both horse and rider
 
 **Ending State (Chapter 25):**
 - Promise accepts rider (Sage) on his back
@@ -248,7 +254,7 @@ The irony: Sage hates sidesaddle, never feels natural to her. Rebecca: "This isn
 - Growing into genuine horsewoman, not just rider
 
 **Rebecca's State:**
-- Processed her own guilt about the colic
+- Processed her own guilt about the backing decision
 - Recommitted to slower pace
 - Teaching Sage deeper lessons about training philosophy
 

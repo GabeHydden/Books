@@ -3,77 +3,73 @@
 **POV: Sage**
 **Late November 1813**
 
-Something was wrong, and Sage couldn't figure out what.
+Sage woke before dawn with Riley's question still circling in her head.
 
-Promise let her mount now—that wasn't the problem. Every day for the past two weeks, she'd climbed into the saddle and he'd stood quiet beneath her, accepting her weight without the trembling terror of those first attempts. Progress. Real, measurable progress.
+*Is it? Always?*
 
-But he wouldn't relax.
+She lay in the dark, listening to the wind push at the house, and turned the question over and over. Riding meant astride. It had always meant astride — legs on both sides, weight centered, the position every horseperson in England used because it was the position that worked.
 
-She could feel it in the rigid line of his neck, the stiffness of his back, the way his ears stayed locked backward toward her instead of forward toward where they were going. He walked when she asked. Stopped when she asked. Even managed a few steps of trot when Rebecca called for it from the center of the round pen. He was obedient.
+Except when it didn't.
 
-But he wasn't *there*. Not the way he was during their grooming sessions, when he'd lean into her touch and blow soft breaths against her shoulder. Not the way he was during longe line work, when his eyes went soft and his movement flowed easy. The moment she settled into the saddle, something in him shut down. Went away. Left behind a horse who was complying but not partnering.
+She thought about Promise standing rigid beneath her, holding himself together through will alone. About the war between his mind and his body — trust-knowledge against body-memory, her voice saying *safe* while her legs said *rider* and his body heard only the second word.
 
-"He's tolerating you," Rebecca said after another tense session. "Not accepting you."
+She thought about Riley, who had sat in that same position for half a second before Promise's body made its choice.
 
-Sage slid down from Promise's back, her legs aching from trying to stay soft and relaxed when every instinct wanted to grip against his tension. "I don't understand. He trusts me on the ground. He sought me out after the colic. Why can't he trust me up there?"
+And then she thought about something else entirely.
 
-"Because up there, you're not you anymore." Rebecca took Promise's reins, running a hand down his neck. He relaxed visibly at her touch—at a touch from someone who wasn't sitting on him. "You're a rider. And riders, in his experience, are something else entirely."
+Sidesaddle.
 
-Sage watched Promise's eye, saw the wariness that hadn't been there a moment ago when she was standing beside him. It hurt more than she wanted to admit.
+Both legs on one side. Weight shifted left. A completely different shape, a completely different pressure, a completely different *feel*. Nothing like what Thornton's riders had done. Nothing like what Riley had been doing the morning Promise threw them. Nothing like any rider he'd ever known.
 
-"So what do we do? Just keep working until he gets used to it?"
-
-"That's one option." Rebecca's voice was thoughtful. "But I'm not sure it's the right one. He's been ridden before, Sage. Ridden hard, ridden cruelly, ridden until his spirit nearly broke. The position you're in—astride, legs on both sides, weight centered over his back—that's the position every bad rider has ever taken. His body remembers even when his mind is trying to trust."
-
-"Then how do I change that?"
-
-Rebecca didn't answer immediately. She was studying Promise, watching the way he stood, the set of his ears, the tiny shifts in his weight. Thinking.
-
-"Let me try something," she said finally. "Stay here."
-
-She led Promise to the fence and tied him loosely, then disappeared into the barn. Sage waited, running her hand down Promise's neck the way she'd done a thousand times. He leaned into her touch. Present. Calm. Trusting.
-
-Until she walked toward the mounting block. Then his head came up, his body tightened, and that shuttered look returned to his eye.
-
-"I'm sorry," she whispered. "I don't know how to make this easier for you."
-
-Rebecca returned carrying the sidesaddle.
-
-Sage stared at it. "You want me to ride him sidesaddle?"
-
-"I want to see if the different position changes anything." Rebecca set the saddle on the fence rail. "Think about it. Astride, your weight is distributed evenly. Your legs are on both sides. Your body is centered and balanced over his spine. That's how Thornton rode. That's how every rider who ever hurt him rode."
-
-"But sidesaddle—"
-
-"Is completely different. Weight shifted to one side. Both legs on the left. A different pressure, a different balance, a different *feel*." Rebecca's eyes met hers. "Horses remember with their bodies. If his body has learned that a rider astride means pain, then maybe a rider who feels nothing like that won't trigger the same response."
-
-It made a strange kind of sense. And yet—
-
-"I hate sidesaddle," Sage admitted. "I can do it now, but it's never felt natural. I'm always fighting my own instincts."
-
-"I know. This isn't about what's comfortable for you." Rebecca's voice was gentle but firm. "It's about what Promise needs. If sidesaddle helps him relax, then sidesaddle is what we do. We meet him where he is, not where we want him to be."
-
-Sage looked at Promise, at the tension still visible in his stance, at the way he watched the saddle on the fence rail with wary attention. Eight months of building trust. The colic and the recovery. The milestone of that first mounting. And still, still, she couldn't reach him when she was on his back.
-
-"All right," she said. "Let's try."
+Sage sat up in bed, her heart beating fast.
 
 ---
 
-Switching the saddles took time. The sidesaddle was heavier, bulkier, required different adjustments to the girth and the positioning. Promise stood patient through it all, his confusion evident—this wasn't the saddle-thing he'd learned to accept.
+She found Rebecca in the tack room at first light, already examining the sidesaddle where it sat on its rack — the same one Sage had learned on, had cursed and struggled with through those weeks of summer training.
 
-When everything was secure, Sage approached the mounting block. Her stomach was tight with nerves. Sidesaddle mounting was awkward at the best of times, and doing it on a horse who might spook at the unfamiliar feeling...
+Rebecca looked up when Sage appeared in the doorway, and something in her expression suggested she'd been thinking along the same lines.
+
+"You're here about Promise," Rebecca said. It wasn't a question.
+
+"The sidesaddle." Sage pointed at it. "Has anyone ever—"
+
+"Used sidesaddle for a horse with astride-specific trauma?" Rebecca ran her hand along the pommel. "Not that I know of. It's not in any training text I've read. But the logic is sound."
+
+"More than sound. It's—" Sage crossed the room, standing beside the saddle, touching the leather. "Every rider who ever hurt him sat astride. Thornton's men. Whoever rode him before that. And Riley — not hurting him, but the position was the same. Legs on both sides. Weight above. His body can't tell the difference between kindness and cruelty when the *shape* of it is identical."
+
+"But sidesaddle is a shape he's never experienced." Rebecca's voice had taken on the precise, analytical quality it carried when she was working through a problem to its conclusion. "No legs on both sides. No symmetric pressure. No match to anything in his body's catalogue of pain. If his trauma is position-specific — and everything we've seen suggests it is — then a different position might bypass the trigger entirely."
+
+They looked at each other across the saddle.
+
+"It might not work," Rebecca said. "He might react to any weight on his back, regardless of configuration. The saddle itself might be enough to trigger him."
+
+"He doesn't react to the astride saddle until I sit up. The weight itself isn't the problem — Riley proved that. Belly-down was fine. The stirrup work was fine. It's only when the legs come down on both sides."
+
+"Then let's test it." Rebecca lifted the sidesaddle from the rack. "Today. No reason to wait."
+
+---
+
+Switching the saddles took time. The sidesaddle was heavier, bulkier, required different adjustments to the girth and the positioning. Promise stood patient through it all, watching with ears pricked as Sage worked — this wasn't the saddle-thing he'd learned to accept. This was something else. Shaped differently, smelling of different leather, sitting on his back with an unfamiliar weight distribution.
+
+He turned his head to investigate, nosing at the pommels that curved up from the left side. New-thing-to-learn. His expression held curiosity rather than fear.
+
+"Good sign," Rebecca murmured from his head. "He's interested, not defensive."
+
+Riley appeared at the fence. They'd been coming to every session for weeks now, the shoulder nearly healed, the ribs knitted enough that full breaths came without flinching. They leaned on the top rail and said nothing, watching.
+
+Sage ran her fingers along the bit — the automatic check, steady as breathing — and gathered the reins. She approached the mounting block with her stomach tight. Sidesaddle mounting was awkward at the best of times, and doing it on a horse who might spook at the unfamiliar feeling —
 
 "I'll hold him steady," Rebecca said. "Take your time."
 
-Sage gathered the reins, put her foot in the single stirrup, and pulled herself up. The familiar twist of settling into the sidesaddle position—left leg hooked around the lower pommel, right leg braced against the upper, both legs on the same side of the horse. Off-balance. Asymmetrical. Wrong-feeling, the way it always felt to her.
+Sage put her foot in the single stirrup and pulled herself up. The familiar twist of settling into position — left leg hooked around the lower pommel, right leg braced against the upper, both legs on the same side. Off-balance. Asymmetrical. Wrong-feeling, the way it always felt to her.
 
 She settled her weight and waited for Promise to tense.
 
 He didn't.
 
-She felt him shift beneath her, adjusting to the different distribution of weight. His head came up slightly, ears flicking—curious rather than alarmed. She could feel his body *listening*, trying to understand this new sensation.
+She felt him shift beneath her, adjusting to the different distribution of weight — heavier on the left, lighter on the right, nothing centered over his spine the way it had been with every previous rider. His head came up slightly, ears flicking — curious rather than alarmed. She could feel his body *listening*, trying to understand this new sensation.
 
-But he wasn't shutting down. Wasn't going rigid with that terrible tolerated-not-accepted tension.
+But he wasn't shutting down. Wasn't going rigid with that terrible tolerated-not-accepted tension. His back was soft beneath the saddle. His breathing was steady.
 
 "Walk him," Rebecca said quietly.
 
@@ -81,31 +77,51 @@ Sage asked with her seat, her single leg, the subtle shift of weight that felt s
 
 And something was different.
 
-His neck wasn't locked. His back wasn't stiff. He was still alert, still uncertain, but he was *present* in a way he hadn't been when she rode astride. She could feel him thinking, processing, trying to understand—but not fleeing inside himself the way he had been.
+His neck wasn't locked. His back wasn't stiff. He was still alert, still processing, but he was *present* in a way he hadn't been astride. She could feel him thinking, working it out — but not fleeing inside himself the way he had been. Not enduring. *Attending*.
 
-"His head's lower," Rebecca observed. "And look at his ear. He's listening to you, not just enduring you."
+"His head's lower," Rebecca observed. "And look at his ear. He's listening to you, not just surviving you."
 
-Sage asked for a halt. Promise stopped, soft and easy, his weight settling rather than bracing.
+Sage asked for a halt. Promise stopped, soft and easy, his weight settling rather than bracing. She sat there, both legs on his left side, her weight all wrong by every standard she'd been taught — and felt, for the first time since the fall, the horse she knew on the ground.
 
-"It's different for him," she said, hardly believing it. "He's actually... he's okay with this."
+"It's him," she said, and her voice broke. "He's here. He's actually here with me."
 
-"The weight doesn't feel like what he's known before. The position doesn't match his memories of pain." Rebecca's voice held something like wonder. "I thought it might help, but I didn't expect this much difference."
+From the fence, Riley made a small sound — something between a laugh and a breath — and pressed both hands flat against the top rail.
 
-They worked for ten more minutes—walking, halting, small circles. Nothing complicated. But Promise remained present throughout, his body language so dramatically different from the astride sessions that Sage wanted to laugh and cry at the same time.
+They worked for ten more minutes. Walking, halting, small circles. Nothing complicated. But Promise remained present throughout, his body language so dramatically different from the astride sessions that the contrast was almost unbearable. This was the horse who leaned into her hand at the fence. The horse who followed her voice in the round pen. The horse who chose her. And all it had taken to reach him was sitting differently.
 
 When she dismounted, he turned to nose at her shoulder. The gesture he only offered when he was truly at ease. When he felt safe.
 
-"Hello to you too," she murmured, rubbing behind his ears. "Did that feel better? Being ridden like a lady's horse instead of whatever Thornton made you?"
+"Hello to you too," she murmured, rubbing behind his ears while tears ran down her face and she didn't care. "Did that feel better?"
 
-He didn't answer, of course. But his eye was soft, and when she leaned her forehead against his neck, he let out a long breath that sounded almost like relief.
+He didn't answer, of course. But his eye was soft, and when she leaned her forehead against his neck, he let out a long breath that sounded like something finally unclenching.
+
+---
+
+Riley was waiting when Sage led Promise out of the round pen.
+
+"I have to tell you something," Riley said, "and I want you to hear it properly. Not as consolation."
+
+Sage stopped. Promise stood between them, nosing at Riley's jacket with easy familiarity — ground-Riley was fine; ground-Riley had never been the problem.
+
+"He's not rejecting me," Riley said. "What I just watched — that wasn't about me being wrong for him. It was about the *position* being wrong for him. Astride is the shape of every bad thing that's ever happened to him on a horse's back. Including—" A brief pause. "Including what happened with me. And sidesaddle is a shape that has no history at all. No pain attached. He's not choosing you over me. He's choosing the position that doesn't frighten him. That's smart. That's him protecting himself."
+
+"Riley—"
+
+"I mean it. Don't feel guilty about this. Don't carry it as another thing you took from me." Riley reached out and scratched behind Promise's ear, and the stallion leaned into the touch. "This is what it looks like when you figure out what a horse actually needs instead of what you planned to give. This is the whole point of everything Rebecca teaches."
+
+Sage looked at Riley — at the generosity of it, the willingness to name the hard thing and set it down instead of letting it fester. At the person who had been thrown by this horse and still wanted nothing but his healing.
+
+"Thank you," Sage said.
+
+"Don't thank me. Ride him." Riley smiled, and the smile reached their eyes. "Ride him the way he needs to be ridden. That's thanks enough."
 
 ---
 
 They tried again the next day. And the next. And the next.
 
-Each sidesaddle session, Promise relaxed a little more. Started anticipating her cues instead of just reacting to them. Began to move with her rather than despite her. By the fourth day, Rebecca had them trotting, and Promise's stride was free and forward—nothing like the choppy, tense gait he'd offered astride.
+Each sidesaddle session, Promise relaxed a little more. Started anticipating her cues instead of just reacting to them. Began to move with her rather than despite her. By the fourth day, Rebecca had them trotting, and Promise's stride was free and forward — nothing like the choppy, tense gait he'd offered astride.
 
-"He's a different horse," Riley observed, watching from the fence. "I wouldn't have believed it if I hadn't seen it."
+"He's a different horse," Riley observed from the fence.
 
 "He's the same horse," Sage said. "We just found a way to reach him."
 
@@ -117,47 +133,33 @@ This was what he needed. This was how they could be partners.
 
 "I'll do whatever it takes."
 
-"I know you will." Rebecca smiled slightly. "I have to admit, I didn't see this coming. All my years of training, and I never thought to try sidesaddle as a solution for a traumatized horse. Promise is teaching us something new."
+"I know you will." Rebecca paused. "I have to admit — in thirty years of training, I've never used sidesaddle as a solution for a traumatized horse. I didn't think of it. You did."
 
-"He's teaching *me* something new." Sage looked out toward his paddock, where he stood in the fading light, coat dark against the grey November sky. "I kept trying to make him fit what I wanted—to ride him the way I ride Thunder and Clover. But he's not them. He's Promise. And Promise needs something different."
+"Riley pointed me toward it." Sage glanced at the armchair by the fire, where Riley sat reading, and felt something warm move through her chest. "Asked me if riding always meant legs on both sides. The answer seemed obvious until I actually thought about it."
 
-"That's a hard lesson for most riders. The good ones learn it eventually."
-
-"I'm not sure I'm a good rider."
-
-"You're becoming one." Rebecca put a hand on her shoulder. "A good rider isn't someone who can make any horse do anything. It's someone who can figure out what each horse needs and give them that. You figured out what Promise needed. That makes you good."
+"The obvious answers usually are the wrong ones." Rebecca's mouth twitched. "Promise is teaching us something new. The least we can do is pay attention."
 
 ---
 
-The last day of November brought the first real snow—fat white flakes drifting down from a pewter sky, settling on the paddock fences and the bare branches of the oak trees. Sage stood at Promise's fence, watching him investigate this cold strange substance with his usual careful curiosity.
+The last day of November brought the first real snow — fat white flakes drifting down from a pewter sky, settling on the paddock fences and the bare branches of the oak trees. Sage stood at Promise's fence, watching him investigate this cold strange substance with his usual careful curiosity.
 
-"Winter's here," she told him. "Your first winter at Hartwell. Your first winter being... well. Being happy, I hope."
+He came to the fence, pushed his nose against her shoulder. The snow caught in his forelock, making him look almost magical — a dark horse crowned with white.
 
-He came to the fence, pushed his nose against her shoulder. The snow caught in his forelock, making him look almost magical—a dark horse crowned with white.
-
-"We're going to do great things together," Sage said. "I can feel it. You and me, riding sidesaddle like proper ladies." She laughed at the absurdity of it. "Well. Like a proper lady and a very improper stallion who's teaching her that plans don't mean much when you're dealing with someone else's heart."
+"We're going to do great things together," she told him. "You and me, riding sidesaddle like proper ladies." She laughed. "Well. Like a proper lady and a very improper stallion who's teaching her that plans don't mean much when you're dealing with someone else's heart."
 
 Promise didn't seem to mind being called improper. He was more interested in checking her pockets for apples.
 
 She gave him one, watching him crunch it with the easy contentment she'd worked so hard to build. Nine months ago, this horse had been destined for slaughter. Broken beyond repair, everyone said. Too damaged to save.
 
-Now he was learning to be ridden. Learning to be a partner. Learning that humans could be trusted, that work could be joyful, that the past didn't have to define the future.
+Now he was learning to be ridden. Learning to be a partner. Learning that the past didn't have to dictate the future — that there were ways around the walls his body had built, if someone cared enough to look for them.
 
-And she was learning too. Learning that patience meant more than waiting—it meant adapting. Learning that love meant giving someone what they needed, not what you'd planned to give. Learning that the best partnerships weren't the ones that went according to plan, but the ones that grew into something neither partner had imagined.
+The snow fell harder. Promise snorted, spraying her with snow-breath, and went back to investigating whether the white stuff was edible.
 
-The snow fell harder, beginning to accumulate on the grass. Sage should go inside, get warm, let Promise settle into his shelter. But she stayed a moment longer, her hand on his neck, feeling his warmth against the cold.
+Sage wiped her face and headed for the warmth of the house. At the kitchen door, Riley was waiting with two cups of something hot, and Sage took hers and stood with Riley in the doorway, watching the snow fill up the world.
 
-"Thank you," she said softly. "For trusting me enough to show me what you needed. For being brave enough to keep trying even when it was hard."
+"Spring's a long way off," Riley said.
 
-Promise turned his head to look at her, snowflakes catching on his dark lashes. For a moment, something passed between them—an understanding that went beyond words, beyond species, beyond everything that should have made this impossible.
-
-Then he snorted, spraying her with snow-breath, and went back to investigating whether the white stuff was edible.
-
-Sage laughed, wiped her face, and headed for the warmth of the house.
-
-Behind her, Promise stood in the falling snow, no longer a broken thing to be pitied but a horse with a future. A horse who had learned to trust again. A horse who had found, against all odds, a partner willing to meet him exactly where he was.
-
-Spring would come eventually. And when it did, they would be ready.
+"Good," Sage said. "We've got work to do."
 
 ---
 

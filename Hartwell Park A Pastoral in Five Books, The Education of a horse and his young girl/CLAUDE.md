@@ -27,7 +27,6 @@ The manuscript is in comprehensive revision. This file contains cross-chapter re
 - **Promise's age**: Bible says 6 at arrival (born 1807). Book 1 summary incorrectly says "three-year-old." Chapters correctly say six. Fix the summary.
 - **Jennifer's age**: Bible says 43. Book 1 summary says "approximately 37." Use 43.
 - **Horse colors in Book 1 summary**: Summary has Clover/Thunder colors swapped vs. bible. Bible is correct: Clover = chestnut mare, Thunder = grey gelding.
-- **Rebecca's surname**: She's "Hartwell" (inherited the estate). Sage is "Morrison." Some references incorrectly call Rebecca "Morrison." Fix to Hartwell.
 - **Two Chapter 14 files**: `chapter_14_rebuilding.md` and `chapter_14_returning_to_the_saddle.md`. The latter ("Returning to the Saddle") is the current version. The former can be archived/deleted.
 
 ---

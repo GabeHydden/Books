@@ -74,7 +74,7 @@ But.
 
 Riley raised an eyebrow. "No?"
 
-"We don't need to prove anything today. The exhibition tomorrow will show what he can do." Sage thought of the colic, of Rebecca's words about pushing too fast, of all the lessons they'd learned about patience. "I'd rather save his energy and his trust for when it matters. The flashing lane is chaos—strange horses, crowds pressing close. He handled yesterday well, but every test costs something. I don't want to spend what we might need later."
+"We don't need to prove anything today. The exhibition tomorrow will show what he can do." Sage thought of Riley's fall, of Rebecca's words about pushing too fast, of all the lessons they'd learned about patience. "I'd rather save his energy and his trust for when it matters. The flashing lane is chaos—strange horses, crowds pressing close. He handled yesterday well, but every test costs something. I don't want to spend what we might need later."
 
 Rebecca, walking ahead, turned back with something like approval in her expression. "Good. That's good thinking."
 
