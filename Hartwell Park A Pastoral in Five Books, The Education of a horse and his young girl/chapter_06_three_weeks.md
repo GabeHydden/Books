@@ -82,7 +82,9 @@ Sage's stomach dropped. She'd been walking on Clover for five days now, gaining 
 
 "I don't think I'm ready."
 
-"You're ready enough. And the only way to get better at trotting is to trot." Riley checked the girth one more time. "It's going to feel bouncy. Uncomfortable. Your instinct will be to grip with your legs and tense up, but that'll make it worse. You need to learn to post—rise and fall with the horse's rhythm. I'll show you."
+"You're ready enough. And the only way to get better at trotting is to trot." Riley checked the girth one more time. Sage ran her fingers along the bit as Riley had taught her—feeling for rough edges, checking where the metal met the rings—then tested each buckle on the cheekpiece. Everything smooth, everything sound. She stepped back.
+
+"It's going to feel bouncy. Uncomfortable. Your instinct will be to grip with your legs and tense up, but that'll make it worse. You need to learn to post—rise and fall with the horse's rhythm. I'll show you."
 
 Riley demonstrated from the ground, miming the rising and falling motion. "The trot is a two-beat gait. Boom-boom, boom-boom. You rise on one beat, sit on the next. Rise, sit, rise, sit. It takes practice."
 

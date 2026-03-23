@@ -16,13 +16,15 @@ Sage accepted a plate of bread, cheese, and sliced apples gratefully. The warnin
 
 "I know," she muttered, leading him toward the barn. "I don't want to work in this heat either."
 
+In the barn aisle she tacked him with quick efficiency, wanting to get the work over with before the heat got worse. Saddle pad, saddle, girth cinched. She pulled the bridle off its hook and slid the bit into his mouth, buckling the noseband and throatlatch with practiced hands, her fingers moving through the motions without the careful inspection Riley had drilled into her in those first weeks. Thunder mouthed the bit, working it with his tongue, but Sage was already reaching for her gloves.
+
 ***
 
 The exercise ring was already hot despite the early hour, the packed earth radiating yesterday's stored warmth. Riley was setting up poles for a simple gymnastic line—just three small jumps in a row, distances set for an easy canter stride between.
 
 "We're keeping it light today," Riley said. "Just enough work to keep them from getting bored and stiff, not enough to stress them in the heat. Walk him around the ring a few times to warm up, then we'll try the line twice through. That's it."
 
-Thunder's warm-up felt off from the first stride. He was heavy in Sage's hands, leaning on the bit, not listening to her half-halts. When she asked for trot, he gave her something between a jog and a stomp—too slow to post properly, too fast to sit comfortably.
+Thunder's warm-up felt off from the first stride. He was heavy in Sage's hands, leaning on the bit, not listening to her half-halts. Once he tilted his head slightly to the left, as though trying to shift the bit's weight to one side. Sage corrected him with her right rein, annoyed. When she asked for trot, he gave her something between a jog and a stomp—too slow to post properly, too fast to sit comfortably.
 
 "More leg," Riley called. "Send him forward. He's being lazy."
 
@@ -42,7 +44,7 @@ But Thunder didn't want to trot. He wanted to canter, and when Sage pulled on th
 
 Thunder's head came up sharply, his mouth open against the sudden bit pain. For one heartbeat everything hung suspended. Then he reared.
 
-Not a small rear. Not a protest. A full vertical rise, front hooves pawing air, and Sage felt herself sliding backward, nothing to hold onto, gravity taking over. She hit the ground hard on her left side, the impact driving the air from her lungs. Thunder landed on all fours beside her and bolted to the far side of the ring, head high, eyes showing white.
+Not a small rear. Not a protest. A full vertical rise, front hooves pawing air, and Sage's hands locked on the reins—not pulling now, just clinging, the leather her only anchor as gravity hauled her backward. For two terrible seconds her full weight hung from his mouth, her arms rigid, her body sliding while her fists refused to let go. Then the reins tore through her fingers and she hit the ground hard on her left side, the impact driving the air from her lungs. Thunder landed on all fours and bolted to the far side of the ring, head high, eyes showing white.
 
 For several seconds Sage couldn't breathe. Couldn't move. Could only lie there in the dirt while her body screamed and her lungs refused to work. Then air rushed back in with a painful gasp.
 
@@ -102,17 +104,35 @@ But Thunder had to be cooled out properly. Had to be walked until his breathing 
 
 When he was finally cool, she hosed his legs with hands that shook slightly—from pain or shame or both, she wasn't sure. She picked his feet carefully, checking each hoof even though bending over made her ribs scream. Then, dreading it, she tied him in the cross-ties to check his mouth.
 
-Her own hands went to his halter, unbuckling the cheek pieces so she could examine where the bit had pressed. Thunder tensed as she touched his face—he remembered what had happened, remembered the pain—and Sage had to move slowly, carefully, earning his tolerance.
+She unbuckled the cheekpieces to remove the bridle, easing the bit from Thunder's mouth as gently as she could. He tensed as she touched his face—he remembered what had happened, remembered the pain—and she had to move slowly, carefully, earning his tolerance. When the bit was free she held it in her hands, meaning to set it aside.
 
-When she finally got a clear look at his mouth, her stomach lurched. There was a cut at the left corner where the bit had rubbed, small but definitely bleeding. The bars of his mouth—the sensitive area where the bit rests—were red and inflamed on both sides.
+Her thumb caught on something.
+
+She turned the bit over, ran the pad of her finger along the left side of the mouthpiece. There—a rough edge, a burr of metal where the surface had worn or been damaged, sharp enough to catch her fingertip. Sharp enough to cut.
+
+For a moment Sage didn't breathe. She stood there holding the bit, feeling the burr against her thumb, and the morning reassembled itself with horrible clarity. Thunder heavy in her hands from the first stride—not lazy, not testing her, but trying to shift his mouth away from the thing that was cutting him. The head-tilt she'd corrected with her rein. The tossing, the yanking, the refusal to settle. Every signal she'd read as *difficult* had been *something is wrong with my bit* and she hadn't—
+
+She hadn't checked. Riley had taught her. Run your fingers along the bit before every ride. Feel for rough edges. The horse can't tell you his equipment is wrong. And she'd bridled him that morning without touching the bit at all.
+
+The burr could have been there for days. Every ride, pressing against the soft tissue of his mouth. And she'd never felt it because she'd stopped looking.
+
+When she got a clear look at his mouth, her stomach lurched. There was a cut at the left corner where the burr had sat—small but deep, the tissue around it raw and inflamed. The bars of his mouth were red and swollen on both sides from her weight on the reins during the fall.
 
 "Oh, Thunder," she whispered, tears finally spilling over. "I'm so sorry."
 
-She fetched salve from the medical kit, the one Rebecca kept for treating mouth injuries. Her ribs protested every movement, but she ignored them. Carefully, gently, she applied the salve to the cut and the inflamed areas, using her fingers to work it in with the lightest possible touch. Thunder tolerated it, though his ears stayed back, uncertain.
+She set the bit on the ledge of the nearest stall—carefully, as though it were evidence—and fetched salve from the medical kit, the one Rebecca kept for treating mouth injuries. Her ribs protested every movement, but she ignored them. Carefully, gently, she applied the salve to the cut and the inflamed areas, using her fingers to work it in with the lightest possible touch. Thunder tolerated it, though his ears stayed back, uncertain.
 
-Riley appeared with carrots and helped hold Thunder steady while Sage finished treating his mouth. When she was done, Sage offered Thunder the carrots, one at a time. He took them carefully, chewing slowly, and Sage noticed he was favoring the right side of his mouth—the side that hurt less.
+Riley appeared with carrots and helped hold Thunder steady while Sage finished treating his mouth. When she was done, Sage offered Thunder the carrots, one at a time. He took them carefully, chewing slowly, favoring the right side of his mouth—the side that hurt less.
 
-"I hurt you," she said, voice breaking. "I was angry and impatient and I hurt you. You were trying to tell me you didn't feel well, and instead of listening, I punished you for it."
+"The bit," Sage said, her voice barely working. She pointed to where she'd set it on the stall ledge. "There's a burr on the left side. I didn't check it this morning. I didn't—" Her throat closed.
+
+Riley picked up the bit and ran a finger along the mouthpiece. Found the burr. Went very still.
+
+"How long has this been here?" Riley's voice was quiet. Not angry—something worse than angry.
+
+"I don't know. I haven't checked the bit in—" Sage couldn't finish the sentence. Couldn't say *weeks, maybe*. Couldn't admit that the lesson Riley had taught her in those first days, the one she'd practiced so carefully on Clover and then on Thunder himself, had become something she skipped because it was boring and nothing had ever been wrong and she'd wanted to get to the riding.
+
+Riley set the bit down and looked at Sage for a long moment. "I should have checked it myself before the lesson. I was in the ring. I should have looked." Then, quieter: "But I taught you to check, Sage. I taught you, and you stopped doing it."
 
 Thunder crunched his carrot, watching her with one dark eye. Not forgiving, not yet. Just watching. Waiting to see what she'd do next.
 
@@ -120,15 +140,29 @@ Sage put him in his stall with extra hay and a salt lick, made sure his water wa
 
 The movement made her gasp. Her entire left side was on fire now, the bruising setting in hard. She touched her ribs gingerly through her dress and winced—definitely bruised, possibly cracked, though she didn't think anything was broken. Her hip where she'd landed throbbed. Her shoulder ached.
 
-*Good*, she thought viciously. She deserved it. Thunder's mouth would hurt for days because of her temper, so her ribs could hurt too.
+*Good*, she thought viciously. She deserved it. Thunder's mouth would hurt for days because of what she'd done—her temper and her negligence both—so her ribs could hurt too.
 
-Riley found her there fifteen minutes later, still sitting, still cataloging her pain.
+She heard Rebecca before she saw her. Footsteps in the barn aisle, unhurried, deliberate. Rebecca appeared at Thunder's stall, checked him over the door with that focused attention she gave injured horses—the quick systematic sweep of eyes cataloguing posture, breathing, weight distribution. Then her gaze found the bit on the stall ledge.
+
+She picked it up. Turned it over in her hands. Ran her thumb along the mouthpiece with methodical precision, the way she might check a horse's tendon for heat—systematically, every surface. Her thumb found the burr and stopped.
+
+"When did you last check this bit?" she asked, not looking up. Her voice was flat. Careful. "Really check it—fingers along every edge, the way Riley showed you?"
+
+Sage couldn't speak.
+
+"This burr has been here for some time. Days, perhaps." Rebecca turned the bit in the light, examining the rough metal. "Every ride he's done with this in his mouth, he's been feeling it. And every ride, you didn't notice." She set the bit down—precisely, aligned with the edge of the ledge—and turned to look at Sage. "The emotional control matters. Of course it matters. But the failure didn't start in the ring, Sage. It started in the tack room. It started every time you decided the preparation was less important than the performance."
+
+The words landed on top of everything Rebecca had already said at the ring, and the combined weight of it was almost more than Sage could bear. She'd thought the lesson was about losing her temper. That was bad enough. But this was worse—this was a pattern, a slow erosion of the care Riley had taught her, and Thunder had paid for it.
+
+"He was in pain from the moment I put the bit in," Sage said. The words scraped out of her. "Everything he did—the heaviness, the head-tossing, the fighting—he was trying to tell me his mouth hurt. And I thought he was being difficult."
+
+"Yes," Rebecca said. There was no softness in it. Just confirmation.
+
+She checked Thunder once more through the stall door, satisfying herself that he was settled, then walked away without another word.
+
+Riley found Sage on the bench a few minutes later, still sitting, still staring at the bit Rebecca had left on the ledge.
 
 "You need to let Jennifer look at those ribs," Riley said.
-
-"Thunder first," Sage said. "His mouth is cut. I put salve on it, but someone should check it again this evening."
-
-"I'll check it. Now go let Jennifer examine you."
 
 "I don't deserve—"
 
@@ -220,7 +254,7 @@ Something in Rebecca's posture eased at the question—as if horse welfare were 
 
 "I don't know how to ride him again after this. How to face him knowing what I did."
 
-"The same way you faced him this morning after it happened. You apologized—not with words he could understand, but with your actions. You cared for him despite your own pain. You put his welfare above your comfort. That matters." Rebecca's voice was firm. "When you're healed enough to ride again, you'll go back to basics with Thunder. Walking only. Listening to what he tells you. Proving to him that you learned from your mistake. It won't be easy. He'll test whether you've changed. But you can earn back his trust if you're willing to do the work."
+"The same way you faced him this morning after it happened. You apologized—not with words he could understand, but with your actions. You cared for him despite your own pain. You put his welfare above your comfort. That matters." Rebecca's voice was firm. "When you're healed enough to ride again, you'll go back to basics with Thunder. Every piece of tack inspected before every ride. Walking only. Listening to what he tells you. Proving to him that you learned from your mistake. It won't be easy. He'll test whether you've changed. But you can earn back his trust if you're willing to do the work."
 
 "What if I make the same mistake again?"
 
@@ -254,11 +288,11 @@ But she tried. She came out to the steps and said *I was harsh* and explained wh
 
 Her ribs throbbed with each breath. Thunder's mouth hurt from her mistake. But both would heal.
 
-And she would be better. Would have to be better. Would remember this pain—hers and his—and choose differently next time.
+And she would be better. Would have to be better. Would remember this pain—hers and his—and choose differently next time. Would run her fingers along every inch of every bit before every ride, the way Riley had taught her, the way she'd stopped doing because it was tedious and nothing had ever been wrong.
 
-The heat would return. Frustrations would return. Difficulties would return.
+The heat would return. Frustrations would return. The temptation to skip the unglamorous work would return.
 
-But Sage would be ready. Would choose patience over force. Would breathe through the tightness in her chest instead of letting it control her hands. Would remember that her job wasn't to make horses comply—it was to earn their willing partnership.
+But Sage would be ready. Would choose patience over force. Would breathe through the tightness in her chest instead of letting it control her hands. Would remember that the care was the work—all of it, every time—and that the shortcuts she took when no one was watching were the ones that hurt someone eventually.
 
 One breath, one choice, one moment at a time.
 

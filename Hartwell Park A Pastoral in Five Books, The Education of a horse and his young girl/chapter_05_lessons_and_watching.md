@@ -102,6 +102,10 @@ The horse seemed enormous from this angle, all muscle and height and living, bre
 
 "She won't hurt you," Riley said, checking the girth strap one more time. "Clover's taught more people to ride than I can count. She knows her job."
 
+Riley moved to Clover's head and slid a finger along the bit where it rested against the mare's lip, running the pad of her thumb across the metal edge. "Before every ride," she said, matter-of-fact, "you check the tack. Every piece. Run your fingers along the bit—feel for rough spots, burrs, anything sharp. Check the leather for cracks, the stitching for fraying, the buckles for rust. Every time." She moved back along Clover's side, testing a buckle on the cheekpiece, tugging the reins where they attached. "The horse can't tell you his equipment is wrong. He can only tell you it hurts, and by then the damage is done."
+
+Sage nodded, trying to absorb this along with everything else—the names of the saddle parts, the right way to approach, the left-side mounting, all of it pouring in faster than she could hold.
+
 Clover turned her head to look at Sage with one large, dark eye. Her expression was placid, almost bored. Sage reached up to touch the mare's neck, feeling the warmth of her, the solid reality.
 
 "I'm frightened," Sage admitted.

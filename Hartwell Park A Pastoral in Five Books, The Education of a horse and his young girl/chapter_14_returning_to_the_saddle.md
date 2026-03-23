@@ -104,6 +104,8 @@ Riley met her at the barn that afternoon with Clover already tacked up. The old 
 
 "Just mounting and dismounting might hurt," Riley warned. "Go slow. Use the mounting block. Let Clover stand perfectly still until you're settled."
 
+Before she went to the block, Sage stopped at Clover's head. She ran her fingers along both sides of the bit, feeling every surface, testing where the metal met the rings. Smooth. Sound. She checked the buckles on the cheekpiece, the stitching on the reins. Everything in order. Riley watched without comment.
+
 Sage approached the mounting block with her heart in her throat. Putting her left foot in the stirrup pulled at her ribs. Swinging her right leg over made her gasp. But then she was sitting in the saddle, gathering reins, feeling Clover's solid warmth beneath her, and despite the pain it felt like coming home.
 
 "How is it?" Riley called.

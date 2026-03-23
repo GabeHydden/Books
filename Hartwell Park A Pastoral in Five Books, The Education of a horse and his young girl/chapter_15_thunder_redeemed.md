@@ -12,7 +12,7 @@ Sage nodded, though her hands were already trembling. She'd known this moment wa
 
 ***
 
-An hour later, Sage stood in Thunder's stall with his tack, her hands moving through the familiar routine on autopilot while her mind raced. Thunder stood quiet, hip cocked, eyes half-closed. He showed no sign of remembering the rear, no wariness of her presence. Horses didn't hold grudges. Riley had told her that half a dozen times over the past week.
+An hour later, Sage stood in Thunder's stall with his tack. She lifted the bridle from its hook and ran her fingers along the bit — slowly, deliberately, feeling every edge and surface the way Riley had taught her. The bit they'd replaced after the accident, new and smooth. She checked it anyway. Checked the buckles, the leather, the stitching where the reins met the rings. Then the saddle: girth, billets, stirrup leathers. Everything. Thunder stood quiet, hip cocked, eyes half-closed. He showed no sign of remembering the rear, no wariness of her presence. Horses didn't hold grudges. Riley had told her that half a dozen times over the past week.
 
 But Sage remembered. Her ribs had only stopped aching two days ago. She remembered the sensation of sliding backward, of nothing to hold onto, of hitting the ground so hard the world went blank. Remembered the look in Thunder's eyes afterward—not mean, not vicious, just afraid because she'd hurt him first.
 

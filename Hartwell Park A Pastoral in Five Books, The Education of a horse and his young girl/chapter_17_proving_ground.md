@@ -120,7 +120,7 @@ Sage looked at Thunder, who stood calmly despite the early hour and the unusual 
 
 "Ready," she said.
 
-Riley helped her mount, and the sidesaddle position that had felt impossible two weeks ago now felt merely difficult. Manageable. She arranged her skirt properly, gathered her reins, settled her weight. Thunder shifted beneath her, rebalancing, then stood quiet.
+Before mounting, Sage ran her fingers along Thunder's bit — the automatic check that had become as much a part of her routine as gathering the reins. Smooth. Sound. She nodded to herself, and Riley helped her mount. The sidesaddle position that had felt impossible two weeks ago now felt merely difficult. Manageable. She arranged her skirt properly, gathered her reins, settled her weight. Thunder shifted beneath her, rebalancing, then stood quiet.
 
 Rebecca mounted Whisper with practiced ease, and they set off together down the lane toward Ashworth estate.
 

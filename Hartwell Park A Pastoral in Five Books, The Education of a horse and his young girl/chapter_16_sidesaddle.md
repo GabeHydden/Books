@@ -32,7 +32,7 @@ Riley, who was already pulling Thunder's regular saddle off its rack, grinned. "
 
 ***
 
-Thunder stood patiently in the barn aisle while Riley fitted the sidesaddle to his back, adjusting the girth with meticulous care. The saddle sat further back than a regular saddle, distributed weight differently. Thunder's ear flicked back, noting the change, but he showed no concern. Just another day, another variation of the work.
+Thunder stood patiently in the barn aisle while Riley fitted the sidesaddle to his back, adjusting the girth with meticulous care. The saddle sat further back than a regular saddle, distributed weight differently. While Riley worked the girth, Sage went to Thunder's head and ran her fingers along the bit — both sides, every edge. Habit now, not thought. Thunder's ear flicked back, noting both the different saddle and the familiar touch of her fingers at his mouth, but he showed no concern. Just another day, another variation of the work.
 
 Sage wished she could borrow some of his calm.
 

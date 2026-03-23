@@ -164,11 +164,13 @@ That afternoon, Sage spent an hour in Thunder's stall, just being present while 
 
 His ear flicked. *We'll see.*
 
-She'd ridden him once, briefly, at a walk with Riley leading. Had felt the difference immediately—the power coiled in his hindquarters, the way he moved with a bigger stride than Clover's patient plod. Had felt, too, the way he tested her seat with every step, asking: *Can you sit this? Can you handle me?*
+She'd ridden him once, briefly, at a walk with Riley leading. She'd tacked him herself that day—taking twice as long as she would have with Clover, partly because his saddle was heavier and the girth needed a longer reach, but mostly because she'd been careful. She'd run her fingers along every inch of the bit, feeling the weight of it, the thicker mouthpiece so different from Clover's lighter snaffle. Had checked each buckle on the bridle, tested the stitching on the reins where they joined the bit rings. Riley had watched from the tack room doorway and given a small nod when she finished. No comment. Just the nod.
+
+She'd felt the difference in the saddle immediately—the power coiled in his hindquarters, the way he moved with a bigger stride than Clover's patient plod. Had felt, too, the way he tested her seat with every step, asking: *Can you sit this? Can you handle me?*
 
 Tomorrow she'd find out if her answer was yes.
 
-Riley appeared at the stall door as she was finishing. "Nervous?"
+Riley appeared at the stall door as she was finishing the grooming. "Nervous?"
 
 "Terrified."
 

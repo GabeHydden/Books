@@ -32,7 +32,7 @@ Riley read her expression and smiled. "Don't look so glum. Clover has more to te
 
 ***
 
-An hour later, Sage tacked up Clover in the barn aisle, moving through the familiar routine. The old mare stood patiently as always, eyes half-closed, one back hoof cocked in relaxation. How many times had Sage done this? Twenty? Thirty? Clover's patience had been infinite while Sage fumbled with buckles and learned the difference between a browband and a throatlatch.
+An hour later, Sage tacked up Clover in the barn aisle, moving through the familiar routine with quick efficiency—saddle pad, saddle, girth cinched in three practiced motions. She slid the bridle on without pausing, settling the bit into Clover's mouth and buckling the noseband and throatlatch by feel. The old mare stood patiently as always, eyes half-closed, one back hoof cocked in relaxation. How many times had Sage done this? Twenty? Thirty? Clover's patience had been infinite while Sage fumbled with buckles and learned the difference between a browband and a throatlatch.
 
 "Thank you," Sage said softly, rubbing Clover's forehead. "For being kind to me when I didn't know anything."
 
