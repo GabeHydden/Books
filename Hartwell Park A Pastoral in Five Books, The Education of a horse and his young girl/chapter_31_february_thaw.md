@@ -39,23 +39,71 @@ Sage felt eyes turn to her. Belle had been her project through the winter—pati
 
 The room shifted, attention focusing. Promise wasn't a sale horse, but his showing at the fair mattered more than any sale—for Hartwell's reputation, for their financial future, for the statement it would make about Rebecca's methods.
 
-"The plan hasn't changed," Rebecca said. "Sage will ride him in the ladies' exhibition—sidesaddle, demonstrating his manners and responsiveness. Gentle work, nothing flashy. Just showing that he can be trusted."
+"Two demonstrations," Rebecca said, consulting the numbered list she'd written out. "First, Sage rides him in the ladies' exhibition — sidesaddle, walk and trot, showing his manners and responsiveness. Gentle work, nothing flashy. Just showing that he can be trusted."
 
-"And then?" Riley asked.
+She paused, pen tapping once against the ledger edge before she placed it down parallel to the binding. "Second, I ride him over the fences. Sidesaddle — we know better than to put anyone on him astride after what happened with Riley." Her eyes moved briefly to Riley's shoulder, then back to her notes. "Show his movement, his scope, his athleticism. Prove he's more than a pretty walk."
 
-"Then I ride him astride. Show his movement, his speed, his athleticism." Rebecca's eyes met Sage's. "He'll need to accept that—another rider, a different position. We've been working on it, but he's..."
+The room was quiet for a moment. Then Riley shifted against the doorframe.
 
-"Resistant," Sage finished. "He tolerates you, but he doesn't relax the way he does with me."
+"He won't show for you."
 
-"Which is why we don't push it. If he's not ready to show his speed comfortably, we show only his manners. Better to present one success than one success and one failure."
+Rebecca looked up. "I beg your pardon?"
 
-"Will that be enough?" Jennifer's question held the practical concern of someone who managed the household accounts. "For the stud inquiries, I mean. If people only see him as a ladies' horse..."
+"He'll tolerate you. He'll go where you point him. But he won't *show*." Riley's voice was careful but certain — the voice he used when he'd been thinking about something for a long time before speaking. "I've watched you school him over the lower fences this month. He jumps clean because you're a good enough rider to make him. But he's flat. Ears back, neck braced, doing the job because you're asking, not because he wants to. Anyone who knows horses will see the difference."
 
-"Some people will want exactly that. A stallion gentle enough for a lady to ride is a stallion whose foals might inherit that temperament." Rebecca tapped her pen against the ledger. "But yes, it would be better to show both sides. We have six weeks. Let's see what's possible."
+Rebecca's jaw tightened, but she didn't interrupt. She was listening the way she listened to a horse — completely, without the social impulse to defend.
+
+"Now watch him with Sage," Riley continued. "Ears forward. Neck soft. He lengthens his stride before the fence because he *wants* to jump, not because she's driving him to it. That's the horse we need people to see. The horse who chooses the work."
+
+"Sage has never jumped at speed," Rebecca said. "She's never ridden a course at anything above a hunting pace. The fair fences are higher than—"
+
+"She's ready." Riley said it without hesitation. "Her seat is better than half the men who'll be riding that day. She's been over every fence on this estate at a canter, and Promise has never once thought about stopping with her. You've said yourself her balance is exceptional."
+
+"Exceptional for her level of experience. That's not the same as—"
+
+"Rebecca." Riley straightened from the doorframe. "You trained her. Are you telling me you didn't train her well enough?"
+
+A beat of silence. Jennifer made a small sound that might have been a suppressed laugh, quickly hidden behind her teacup.
+
+Rebecca's eyes narrowed, but something shifted in her expression — the particular look she got when a logical chain she hadn't considered rearranged itself in her mind. She turned to Sage.
+
+"Can you do this? And I don't want courage — I want honesty. The fences at the fair are higher than anything you've jumped. The speed required to be impressive — the kind of speed that makes people think 'stud prospect' rather than 'pleasant hack' — is faster than anything you've ridden. If you fall in front of three hundred people, it's not just your pride that suffers. It's Hartwell's reputation."
+
+Sage's heart was hammering. She hadn't expected this — hadn't expected Riley to argue for her, hadn't expected to be sitting in this small warm office deciding whether she was brave enough or foolish enough to say yes.
+
+"I don't know if I can," she said. "But I know Promise will give me everything he has. And I don't think he'll give that to anyone else."
+
+Rebecca studied her for a long moment — that too-direct gaze that no longer made Sage flinch. Then she looked at Riley, who met her eyes steadily, and at Jennifer, who gave a small nod.
+
+"Six weeks," Rebecca said finally. She picked up her pen and added a new line to her numbered list, the handwriting small and precise. "We have six weeks to turn 'I don't know' into 'yes.' That means training every day the weather allows. Fences, speed work, course practice. I'll design the progression." She looked up. "If at any point I decide you're not ready, we revert to my riding him. No arguments. Agreed?"
+
+"Agreed," Sage said.
+
+"Good." Rebecca's pen was already moving, sketching a training schedule in the margin. "We start tomorrow."
 
 ---
 
-After the meeting, Sage went to the barn. She needed to see Promise, to touch him, to feel the reality of his warm body and steady presence. The fair had been abstract for months—something distant, something to prepare for eventually. Now it was concrete. Six weeks. Forty-two days. A number that felt both impossibly short and infinitely long.
+After the meeting, Sage caught Riley in the corridor.
+
+"Why did you do that?"
+
+Riley turned, one hand on the banister. "Do what?"
+
+"Argue for me. You could have said nothing. Rebecca would have ridden him herself and it would have been fine."
+
+"It wouldn't have been fine. It would have been adequate." Riley came back down the two steps he'd climbed, standing level with her. "There's a difference between a horse doing as he's told and a horse showing what he is. Promise does as he's told for Rebecca. He shows what he is for you."
+
+"But if I'm not good enough—"
+
+"You're good enough." Riley said it the way he said most things — quietly, without ornament, as if stating something he'd observed rather than something he believed. "I've watched you ride every day for months. I've seen your seat over fences, the way you feel his stride and adjust without thinking. You're ready, Sage. You just don't know it yet."
+
+Sage leaned against the wall, the plaster cool through her dress. "And if Rebecca decides I'm not? She said she'd pull me."
+
+"Then she pulls you, and she rides him herself, and it's adequate instead of extraordinary." Riley's eyes were steady. "But she won't pull you. She knows what I know. She just needed someone to say it out loud."
+
+---
+
+Sage went to the barn. She needed to see Promise, to touch him, to feel the reality of his warm body and steady presence. The fair had been abstract for months — something distant, something to prepare for eventually. Now it was concrete. Six weeks. Forty-two days.
 
 Promise was dozing in his stall, one hind leg cocked, his head drooping. He lifted it when she appeared, ears pricking forward, and gave his soft welcoming nicker.
 
@@ -63,61 +111,13 @@ Promise was dozing in his stall, one hind leg cocked, his head drooping. He lift
 
 He pushed his nose against her shoulder. *I see you. You see me.*
 
-"I see you too." She wrapped her arms around his neck, breathing in the dusty-sweet smell of horse. "We have a problem, you and I. Rebecca needs to show your speed, but you won't relax with her. And if you won't relax, you can't show what you're capable of."
+"Riley thinks we can do this," she told him, running her hand down the flat plane of his face. "Jump fences at the fair. In front of hundreds of people. Show them what you are."
 
-He stood quiet, patient, letting her hold him.
+Promise blew out a breath, warm against her palm. His body was soft, easy — present in the way he was only ever present with her. The horse who leaned into her hand. The horse who followed her voice. The horse who chose her, every single day, and would keep choosing her as long as she kept showing up.
 
-"I don't know what to do," she admitted. "I can't make you trust someone. That's not how trust works."
+"I'm terrified," she admitted. "But I think he's right. I think we're ready."
 
-Promise blew out a breath, warm against her neck. His body was soft, easy—the opposite of how he was with Rebecca on his back. With Sage, even just standing in his stall, he was home.
-
-The thought struck her like a physical blow.
-
-With Sage, he was home.
-
----
-
-She found Rebecca in the office, still working through the ledgers. The older woman looked up when Sage knocked on the doorframe, her expression shifting from distracted to attentive.
-
-"What is it?"
-
-"I'll do it." The words came out before Sage could second-guess them. "The speed demonstration. I'll ride him."
-
-Rebecca set down her pen. "Sage—"
-
-"I know what you're going to say. I've never raced. I've never jumped fences that high. I rode with the hunt once, and that was following, not leading." Sage's hands were trembling, but her voice held steady. "But Promise trusts me. He relaxes with me. If we need to show what he can do, I'm the only one who can show it."
-
-"Sidesaddle," Rebecca said. "You'd be riding sidesaddle over fences at racing speed."
-
-"Yes."
-
-The word hung in the air between them. Rebecca's face was unreadable, but her eyes were sharp, assessing.
-
-"Do you understand what you're proposing? The fences at the fair are higher than anything you've jumped. The speed required to be impressive—the kind of speed that makes people think 'stud prospect' rather than 'pleasant hack'—is faster than anything you've ridden. And you'd be doing it in a position that's inherently less secure than astride."
-
-"I know."
-
-"If you fall—"
-
-"I know." Sage's voice cracked, just slightly. "I know the risks. But what's the alternative? We show him as just a ladies' horse, and maybe that's enough for some buyers, but it's not the statement we wanted to make. It's not proof that he's everything a horse can be. It's just... settling."
-
-Rebecca was quiet for a long moment — the kind of silence Sage had learned to wait through, the silence of a mind following a chain of logic to its end before speaking. Then she rose from her desk and came around to stand in front of Sage, her grey eyes holding that too-direct focus that no longer unsettled Sage the way it once had.
-
-"You've grown," she said finally. "The girl who came here a year ago would never have proposed this. She was too afraid of failing, of being seen, of asking too much of herself."
-
-"I'm still afraid."
-
-"Good. Fear keeps us careful." Rebecca put a hand on Sage's shoulder — placed there deliberately, the way she placed everything, a gesture that cost her visible effort but was offered anyway. "If we do this—and I'm not saying yes yet—we train you properly. Not just Promise. You." She ticked the list on her free hand. "Your seat. Your balance. Your ability to stay with him over fences at speed. We have six weeks. It won't be enough to make you an expert, but it might be enough to make you competent."
-
-"I can do it."
-
-"Can you? This isn't about courage, Sage. This is about skill. Promise can have all the talent in the world, but if his rider fails him—"
-
-"I won't fail him." Sage heard the fierceness in her own voice and let it stay. "I won't. He's trusted me with everything. The least I can do is trust myself enough to try."
-
-Rebecca studied her for another long moment. Then, slowly, she nodded.
-
-"All right. We start tomorrow. Six weeks to turn you into someone who can show a stallion over fences sidesaddle at speed." A slight smile crossed her face. "I've done harder things. Not many, but a few."
+Promise lowered his head and rested it against her chest — the heavy, trusting weight of him, given freely. Sage wrapped her arms around his neck and breathed.
 
 ---
 
@@ -145,13 +145,13 @@ The evenings were harder than the days.
 
 Sage would return to the house exhausted, muscles screaming, and sit in the parlor unable to think about anything except the next morning's training. Riley sat with her, bringing tea she barely tasted, offering quiet company that asked for nothing.
 
-"You don't have to do this," Riley said one night, when Sage was so tired she could barely keep her eyes open. "No one would blame you if you changed your mind."
+"I keep thinking about whether I was right," Riley said one night, when Sage was so tired she could barely keep her eyes open. "Pushing for this. Putting you in the ring instead of Rebecca."
 
-"I would blame me." Sage stared into the fire, watching the flames dance. "Promise gave me everything. His trust, his partnership, his healing. The least I owe him is everything I have in return."
+"You were right." Sage stared into the fire, watching the flames dance. "Promise gave me everything. His trust, his partnership, his healing. The least I owe him is everything I have in return."
 
-"You don't owe him your safety."
+"I don't want you to get hurt because of something I said in a meeting."
 
-"It's not about owing." Sage turned to look at Riley, at the worry etched into his face. "It's about... when I came here, I didn't believe I was worth anything. I was broken. Used up. Damaged beyond repair—just like everyone said about Promise." She reached for Riley's hand. "He proved them wrong about himself. Now I have to prove them wrong about me."
+"It's not because of something you said." Sage turned to look at Riley, at the worry etched into his face. "It's about... when I came here, I didn't believe I was worth anything. I was broken. Used up. Damaged beyond repair — just like everyone said about Promise." She reached for Riley's hand. "He proved them wrong about himself. Now I have to prove them wrong about me."
 
 "You already have. You don't need a horse race to prove your worth."
 
@@ -165,9 +165,9 @@ Riley was quiet for a moment. Then he lifted Sage's hand to his lips and pressed
 
 "I know. But if you do."
 
-Sage leaned into Riley's shoulder, letting his warmth seep into her aching body. "If I do, you can say you told me so."
+Sage leaned into Riley's shoulder, letting his warmth seep into her aching body. "You believed in me before I believed in myself. That counts for something."
 
-"I would never." Riley's arm came around her, pulling her close. "I would just help you back on and tell you to try again. That's what we do here, isn't it? We try again."
+"It counts for everything." Riley's arm came around her, pulling her close. "And if you fall, I'll be the first one over the fence to help you back on. That's what we do here, isn't it? We try again."
 
 "That's what we do," Sage agreed. And closed her eyes, and let herself be held.
 

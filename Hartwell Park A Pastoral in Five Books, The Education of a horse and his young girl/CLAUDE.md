@@ -503,13 +503,23 @@ This pass should be done BEFORE Pass 3, since it establishes the pattern that Pa
 
 # REVISION PASS 5: Riley's Pronouns — They/Them → He/Him
 
-## The Change
+## STATUS: COMPLETE
 
-Riley's pronouns change from they/them to he/him throughout the entire manuscript. This is primarily a mechanical find-and-replace operation, but several passages need more careful revision where the pronoun choice is discussed, explained, or narratively significant.
+All pronouns have been changed across all chapters, the epilogue, the bible, and all five book summaries.
+
+## Riley's Identity (Critical Reference)
+
+**Riley is biologically female but lives as a man.** He binds his chest, wears men's clothing, and is addressed with he/him pronouns by the household and in narration. Jennifer calls him "my son." The Squire addresses him as "Mr. Riley." Rebecca introduces him as: "Riley was born in a female body, but he is not a woman in the way most understand the term. He binds his chest and wears men's clothing and lives as a man."
+
+Riley is NOT simply male. He was born in a female body and chose to live as a man. In 1813, there is no clinical language for this — it is shown through behavior, clothing, and the household's acceptance. The outside world sees an eccentric woman; the people who know and love him see a man. This distinction matters and must be preserved in all future revisions.
+
+## The Change (Completed)
+
+Riley's pronouns were changed from they/them to he/him throughout the entire manuscript.
 
 ## Rationale
 
-Riley presents as male — binds his chest, wears men's clothing, and asks to be addressed with masculine terms. In 1813, a person living this way would have been understood and addressed as male by the people around them who respected that choice. He/him is both more period-authentic and creates cleaner, less ambiguous prose than singular they/them, which produces micro-jolts in the historical voice every time it appears.
+Riley presents as male — binds his chest, wears men's clothing, and lives as a man. In 1813, a person living this way would have been understood and addressed as male by the people around them who respected that choice. He/him is both more period-authentic and creates cleaner, less ambiguous prose than singular they/them, which produces micro-jolts in the historical voice every time it appears.
 
 Riley's identity remains what it has always been — a person born in a female body who lives as male. The pronoun change doesn't alter his character; it gives him the pronoun that his 1813 world would have used for someone living as he does.
 
