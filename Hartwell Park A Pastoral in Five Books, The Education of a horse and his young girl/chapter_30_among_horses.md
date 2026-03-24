@@ -155,8 +155,6 @@ Tomorrow, there would be more. More time with Thunder. More watching the mares w
 
 He could wait for tomorrow. He had learned how to do that now.
 
-And that, more than anything, was how he knew he had healed.
-
 ---
 
 **End of Chapter 30**

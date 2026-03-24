@@ -154,7 +154,3 @@ But tonight there would be warmth and tea and the company of people who had beco
 Promise nickered from inside the barn, a sound of contentment. Riley laughed at something—probably his demanding insistence on immediate grain.
 
 Sage smiled and went inside.
-
----
-
-**End of Chapter 27**

@@ -72,7 +72,7 @@ He understood this now. Pressure = question. Release = correct-answer. Moving-wh
 
 It made sense-pattern. Clear-language. Not-confusing like before-time when crop-hitting happened whether-or-not Promise tried-correctly.
 
-"Whoa," tall-human-with-quiet-eyes said, and Promise stopped. Turned-inward to face her, waiting for next-question.
+"Whoa," tall-human-with-quiet-eyes said, and Promise stopped. Turned-inward to face him, waiting for next-question.
 
 Carrot-reward. Scratching-behind-ears where it felt good-safe. Praise-words in soft-voice.
 

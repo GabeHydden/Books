@@ -34,7 +34,7 @@ Perhaps because Sage had learned to stop fighting, to trust her body's ability t
 
 Not gracefully. Not yet. Her right leg still burned from holding position, her left hip still ached from the asymmetry. But she sat deep and quiet, following Thunder's rocking motion, and they cantered around the ring twice before Riley called them back to walk.
 
-"Good," Riley said, and there was satisfaction in her voice. "Really good. Your foundation is showing, Sage. Most women take weeks to canter sidesaddle. You're doing it in a week because you already understand how to ride—you're just learning a new position."
+"Good," Riley said, and there was satisfaction in his voice. "Really good. Your foundation is showing, Sage. Most women take weeks to canter sidesaddle. You're doing it in a week because you already understand how to ride—you're just learning a new position."
 
 Sage walked Thunder on a long rein, catching her breath, feeling the tremor in her muscles. A week ago this had seemed impossible. Now it was difficult, uncomfortable, but possible. The difference felt enormous.
 
@@ -70,7 +70,7 @@ They finished the line and Sage was grinning despite the awkwardness, despite ho
 
 Again. And again. And again. Each time through the line, Sage's body learned a little more. Where to hold her weight over the poles, how to follow Thunder's lifting motion even from a sidesaddle position, how to rebalance between elements without hauling on the reins. By the sixth time through, she felt it—that moment of connection where she and Thunder were working together, where the poles were just a conversation between them instead of an obstacle to survive.
 
-"That's enough for today," Riley said, though there was pride evident in her voice. "You're jumping sidesaddle. Nine days from never doing it before. That's remarkable, Sage."
+"That's enough for today," Riley said, though there was pride evident in his voice. "You're jumping sidesaddle. Nine days from never doing it before. That's remarkable, Sage."
 
 It felt remarkable. Felt like proof that the foundation she'd built all summer—the falls and the getting back on, the patient work with multiple horses, the slow understanding of how to communicate through seat and weight and barely-there aids—was real. Was solid enough to support learning new, difficult things.
 
@@ -216,16 +216,6 @@ The stallion pushed his nose against her shoulder—his favorite gesture, the on
 
 Summer was ending. Autumn would bring new challenges, new work, new progress.
 
-But today she'd proven she was ready.
-
-Ready to be competent instead of merely willing.
-
-Ready to be the rider Promise would someday need.
-
-Ready to continue the patient work of building trust between two creatures who'd both learned that humans could hurt them—and were learning, slowly, carefully, that humans could also heal.
-
 The work continued.
-
-And both of them—horse and woman, student and student—were ready for what came next.
 
 **END OF BOOK II: SUMMER — FOUNDATION**

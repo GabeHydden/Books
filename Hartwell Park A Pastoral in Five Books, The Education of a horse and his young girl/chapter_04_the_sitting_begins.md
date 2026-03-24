@@ -210,7 +210,7 @@ Sage thought about how to explain it. "When I sit out there, I keep thinking abo
 
 "The thing is..." Sage stopped, tried again. "I understand that. What it's like to have people mistake your fear for something else. To be told you're being dramatic, or difficult, or—" She cut herself off.
 
-Riley set down the hoof pick, gave Sage their full attention. "Or that you brought it on yourself?"
+Riley set down the hoof pick, gave Sage his full attention. "Or that you brought it on yourself?"
 
 The accuracy of it was like a blow. Sage's hand went to her throat.
 
@@ -244,7 +244,7 @@ She stayed for forty-five minutes that evening. Longer than usual. The sun sank 
 
 When she finally stood to leave, he raised his head and watched her go. But he didn't startle. Didn't tense into readiness. Just watched.
 
-"Small victories," Sage murmured to herself, walking back across the muddy field. Her boots were ruined beyond saving now, her oldest dress was more mud than fabric, and she probably looked like a madwoman, spending hours sitting in wet grass to stare at a traumatized horse.
+Sage walked back across the muddy field, her boots ruined beyond saving now, her oldest dress more mud than fabric. She probably looked like a madwoman, spending hours sitting in wet grass to stare at a traumatized horse.
 
 But Promise's ears had swiveled forward. Just for a moment.
 
@@ -260,7 +260,7 @@ Riley had been right about one thing: most people wouldn't have had the patience
 
 But Sage recognized pointless. She knew the value of small things that looked like nothing from the outside. Knew that healing—if healing was even possible—came in increments too tiny to measure by any standard scale.
 
-She recognized the gift because someone was doing the same for her. Rebecca with her matter-of-fact kindness. Jennifer with her gentle presence that never pressed too close. Riley with their patient teaching. None of them demanded more than she could give. None of them asked her to explain or justify or hurry her recovery.
+She recognized the gift because someone was doing the same for her. Rebecca with her matter-of-fact kindness. Jennifer with her gentle presence that never pressed too close. Riley with his patient teaching. None of them demanded more than she could give. None of them asked her to explain or justify or hurry her recovery.
 
 They just existed around her, consistently, until she began to believe that maybe safety was possible. That maybe the world held more than what Mr. Pemberton had taught her.
 
@@ -293,13 +293,3 @@ Rebecca was at the window when Sage came in — standing in what Sage was beginn
 Sage peeled off Rebecca's sodden mackintosh, hung it by the door. "It doesn't feel remarkable. It feels like nothing. Like I'm just sitting in the mud."
 
 "That's because you're doing it," Rebecca said. "But I promise you, from where he's standing, it's everything."
-
-Later, changed into dry clothes and sitting by the fire with tea, she found herself turning Riley's words over. How the work that changed everything could look like nothing from the outside. How healing happened in the spaces between action, in the patient accumulation of moments that weren't painful.
-
-Through the window, she could just make out Promise's paddock in the darkness, the shape of him under the overhang, dry and safe and learning, perhaps, that tomorrow would come and bring more of the same: a human who sat in the grass, asked nothing, hurt nothing, just existed.
-
-It wasn't much. But it was something.
-
-And sometimes, something was enough to build on.
-
-Sometimes, something was everything.

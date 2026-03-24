@@ -164,7 +164,6 @@ She had learned this. Slowly, incrementally, over three weeks of small touches a
 
 And now Promise was learning it too. The horse who had charged at her in terror three weeks ago had chosen to reach out and touch her. Had learned what she was learning—that not all touch meant pain. That proximity didn't always become a trap.
 
-They were teaching each other. Both of them. Both learning the same lesson from opposite directions.
 
 "He chose me," Sage managed between sobs. "I didn't reach for him. He chose to reach for me."
 
@@ -210,7 +209,6 @@ They were both reclaiming something that had been taken from them. The belief th
 
 Finally, she stood up, collected the apple, and walked back to the house. Tomorrow she would bring another apple. And the day after. And the day after. As many days as it took for him to decide an apple was worth approaching. Worth trusting.
 
-Healing isn't linear, Rebecca had said. Sage was learning that lesson in her bones.
 
 ***
 
@@ -271,5 +269,3 @@ However long it took.
 She had learned patience. Had learned that rushing only broke what needed time to grow. Had learned that love—real love—meant being present, day after day, and letting someone else set the pace.
 
 Promise lowered his head and returned to grazing, comfortable in their presence. Not approaching. Not retreating. Simply there.
-
-For now, that was everything.

@@ -128,7 +128,7 @@ Riley appeared immediately. "What did you do?"
 
 "Show me where you were brushing."
 
-Sage indicated the spot on Thunder's shoulder. Riley pressed gently with their fingers, and Thunder's ears went back, his body tensing.
+Sage indicated the spot on Thunder's shoulder. Riley pressed gently with his fingers, and Thunder's ears went back, his body tensing.
 
 "There. Feel that? He's sore. You were brushing over a sore spot and he told you to stop." Riley's voice was matter-of-fact. "This is what I mean about listening. He communicated. You didn't hear him, so he had to get louder."
 
@@ -249,27 +249,3 @@ The table was quiet. Riley nodded slowly. Rebecca's eyes had gone distant, thoug
 "I didn't have anywhere else to go."
 
 "You could have gone many places. You chose here. That matters."
-
-Later, in her room, Sage stood at the window looking out over the paddocks. She could just make out Promise's dark shape in the evening light, grazing peacefully. Tomorrow she would sit by his fence again. Would bring her book and her patience and her steady, boring presence.
-
-And maybe tomorrow he would come close again. Or maybe he wouldn't. Maybe he'd need another three weeks to take the next step. Maybe he'd never take it.
-
-But she would be there regardless. That was what trust meant.
-
-That was what love meant, she realized with a start. Not the romantic kind—though perhaps that too, someday. But the bigger thing. The choice to show up for someone, consistently, without demanding they heal on your schedule. Without needing them to be anything other than what they were.
-
-Someone had done that for her. Rebecca, Jennifer, Riley. They'd given her space to be broken, to be difficult, to heal at her own pace. They'd shown her what it looked like to be trusted without having to perform trust in return.
-
-And now she was learning to offer that same gift. To Promise first. But maybe, eventually, to herself.
-
-She touched her throat one last time—habit, armor, prayer—and felt only smooth skin. The bruises were gone.
-
-Everything else would take longer.
-
-But she had time. They all had time.
-
-Three weeks down. However many it took ahead.
-
-She was learning patience. Was learning that the most important things couldn't be rushed.
-
-Was learning that sometimes the greatest act of love was simply showing up, day after day, and letting someone else decide what came next.

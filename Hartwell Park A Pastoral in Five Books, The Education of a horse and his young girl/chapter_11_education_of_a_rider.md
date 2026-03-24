@@ -151,11 +151,3 @@ Sage leaned her forehead against the fence rail, Promise's warmth solid beside h
 "I'm learning," she whispered. "For both of us. I'm learning."
 
 And Promise, who'd spent the afternoon watching small-human work with three different horses, who'd seen her fall and get back on, who'd watched her discover something new each day, stayed close. Choosing proximity. Choosing trust.
-
-Wondering—just a little, just enough—what it might feel like to join her in that work someday.
-
-When he was ready.
-
-If he was ready.
-
-But beginning to believe that maybe, possibly, someday he might be.

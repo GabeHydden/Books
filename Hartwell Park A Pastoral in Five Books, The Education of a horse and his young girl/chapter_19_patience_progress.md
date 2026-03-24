@@ -119,11 +119,11 @@ That's what healing looked like, she was learning. Not the absence of fear, but 
 
 ---
 
-Marcus was waiting in the crossties when Sage arrived at the barn, Riley finishing his grooming with the soft brush they used for the more sensitive horses. The young gelding had a kind eye and a nervous disposition—he startled at unexpected sounds, needed extra time to process new requests, but tried so hard to understand what was being asked of him.
+Marcus was waiting in the crossties when Sage arrived at the barn, Riley finishing his grooming with the soft brush used for the more sensitive horses. The young gelding had a kind eye and a nervous disposition—he startled at unexpected sounds, needed extra time to process new requests, but tried so hard to understand what was being asked of him.
 
 Rather like she'd been, Sage reflected, when Riley had first put her on Clover.
 
-"Morning," Riley said, not looking up from their work. The brush moved in long, smooth strokes over Marcus's shoulder. "Rebecca said you're taking him for trot work today?"
+"Morning," Riley said, not looking up from his work. The brush moved in long, smooth strokes over Marcus's shoulder. "Rebecca said you're taking him for trot work today?"
 
 "If he's ready. Thought we'd do some walking first, let him warm up to the idea."
 
@@ -133,7 +133,7 @@ Sage ran her hand along Marcus's back, feeling for any tension. He had a habit o
 
 "Let's take our time," she said. "No rush."
 
-Riley helped her tack up, double-checking the girth and the bit placement with the same careful attention they brought to everything. Sage had learned from watching them that good horsemanship was in these small details—the extra moment to ensure comfort, the willingness to adjust and re-adjust until everything sat just right.
+Riley helped her tack up, double-checking the girth and the bit placement with the same careful attention he brought to everything. Sage had learned from watching him that good horsemanship was in these small details—the extra moment to ensure comfort, the willingness to adjust and re-adjust until everything sat just right.
 
 In the arena, she mounted carefully, settling into the saddle with deliberate slowness. Marcus stood still, but she could feel his breathing—quick, shallow. Anticipating.
 
@@ -219,7 +219,7 @@ Now they rode as equals. Colleagues. Friends.
 
 "What?"
 
-"She said the work isn't teaching horses to obey. It's teaching them that trying is safe. That they can offer behavior and not be punished for getting it wrong." Riley shifted their weight slightly as Clover navigated a fallen branch. "Once they learn that—that offering is safe—they'll try anything for you. They'll be partners instead of prisoners."
+"She said the work isn't teaching horses to obey. It's teaching them that trying is safe. That they can offer behavior and not be punished for getting it wrong." Riley shifted his weight slightly as Clover navigated a fallen branch. "Once they learn that—that offering is safe—they'll try anything for you. They'll be partners instead of prisoners."
 
 Sage felt that settle into her understanding, slotting into place alongside everything else she'd learned here. "That's what we're doing with Promise. Teaching him that trying is safe."
 

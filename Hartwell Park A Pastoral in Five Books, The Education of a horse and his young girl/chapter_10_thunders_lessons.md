@@ -2,7 +2,7 @@
 
 Thunder stood in cross-ties in the barn aisle, his dappled grey coat gleaming from the grooming Sage had just finished. Sixteen hands of muscle and opinion, watching her with one dark eye as she reached for the saddle. His ears swiveled forward—interested, assessing.
 
-"Take your time," Riley said from where they leaned against the tack room door. "Let him see everything before it touches him."
+"Take your time," Riley said from where he leaned against the tack room door. "Let him see everything before it touches him."
 
 Sage held the saddle where Thunder could investigate it, letting him lip at the leather, blow his breath across the pommel. Clover had never cared about any of this—patient Clover, who'd stood like a stone while Sage fumbled with buckles and straps. But Thunder cared. Thunder had opinions about everything.
 
@@ -216,21 +216,3 @@ That afternoon, Sage sat at the desk in her room with paper and ink, writing a l
 *Sage Morrison*
 
 She folded the letter, sealed it with wax, addressed it in careful script. Tomorrow she'd give it to Riley to post in the village. And then she would stop carrying her mother's disappointment like a weight around her neck.
-
-She stood and walked to her window. Promise grazed in his paddock, peaceful in the late afternoon sun. Tomorrow Rebecca would work him again in the round pen. Tomorrow Sage would ride Thunder again, focusing on precision instead of pride. Tomorrow both of them would take another small step toward whatever they were becoming.
-
-Not fixed. Not returned to what they were.
-
-But mended. Made new. Built on a foundation of patience and small daily choices.
-
-Sage pressed her palm against the window glass, feeling its warmth from the day's heat.
-
-"We're learning," she said to the empty room, to Promise in his paddock, to herself. "Both of us. Slowly. Honestly. We're learning."
-
-Outside, Promise lifted his head as if he'd heard her. He looked toward her window for a long moment, then lowered his head and went back to grazing.
-
-Trusting—just a little more each day—that tomorrow would come and it would be okay.
-
-That the work was worth it.
-
-That falling was just part of learning to fly.

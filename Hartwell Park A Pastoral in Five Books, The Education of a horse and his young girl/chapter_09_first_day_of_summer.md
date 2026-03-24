@@ -72,7 +72,7 @@ The exercise ring shimmered with heat by the time they gathered—Sage, Rebecca,
 
 Eventually. The word hung in the bright air like a promise and a threat both.
 
-Riley spoke up, their voice matter-of-fact. "I'll be with you every ride until you're confident. Thunder's a good teacher if you listen to him. He'll tell you exactly what you're doing wrong."
+Riley spoke up, his voice matter-of-fact. "I'll be with you every ride until you're confident. Thunder's a good teacher if you listen to him. He'll tell you exactly what you're doing wrong."
 
 "How reassuring," Sage said, but she was smiling despite herself.
 
@@ -82,7 +82,7 @@ Sage had known this was coming. Had seen the sidesaddle in the tack room, had un
 
 She didn't. "Yes, ma'am."
 
-"Don't look so grim. Riley learned it, and they wear trousers every day." Rebecca's expression softened slightly. "You don't have to love it. You just have to be able to do it when necessary. Most of your riding will still be astride."
+"Don't look so grim. Riley learned it, and he wears trousers every day." Rebecca's expression softened slightly. "You don't have to love it. You just have to be able to do it when necessary. Most of your riding will still be astride."
 
 Small mercies.
 
@@ -108,7 +108,7 @@ Promise's training session was scheduled for mid-morning, after the worst of the
 
 "Pressure and release. I use my position, my energy, to create gentle pressure that asks him to move. When he responds correctly, I release the pressure—step back, soften my body. He learns that the right answer makes the pressure go away, that cooperation brings relief." Rebecca's eyes were on Promise, who stood at the far end of his paddock watching them with wary interest. Her gaze had that quality Sage had come to recognise — utterly focused, reading the horse's body the way other people read faces, seeing things Sage was only beginning to learn to notice. "It's the foundation of everything else. If he won't respond to this, he'll never accept a halter, a line, a saddle."
 
-Riley opened the gate of the round pen and stepped out, then closed it behind them. Rebecca stood in the center, waiting. For a long moment, nothing happened. Promise stayed where he was, sixty feet away, every muscle ready to flee.
+Riley opened the gate of the round pen and stepped out, then closed it behind him. Rebecca stood in the center, waiting. For a long moment, nothing happened. Promise stayed where he was, sixty feet away, every muscle ready to flee.
 
 "We'll give him time," Rebecca said quietly. "Let him decide to investigate."
 
@@ -194,9 +194,7 @@ And that, somehow, made all the difference.
 
 ***
 
-That evening, Sage sat at her window as had become her habit, watching Promise in the silver wash of moonlight. He stood quiet, head low, at peace in a way that still seemed like a small miracle. Beyond his paddock, the fields rolled away into darkness, dotted with the pale shapes of grazing horses. The night air carried the scent of honeysuckle and cut grass and the promise of heat to come.
-
-Jennifer appeared in the doorway behind her, carrying two glasses of cold cider. She handed one to Sage and settled on the bench by the wall.
+That evening, Jennifer appeared in the doorway of Sage's room carrying two glasses of cold cider. She handed one to Sage and settled on the bench by the wall.
 
 "Rebecca mentioned you looked nervous this afternoon," Jennifer said after a moment. "About Thunder." The phrasing was careful — *mentioned*, not *said she was worried about*. Rebecca would have stated it as fact, not concern. Jennifer translated.
 
@@ -219,19 +217,3 @@ In the paddock, Promise shifted his weight, lifted his head to test the wind. Hi
 "I think," Sage said slowly, "I'm less afraid of falling than I am of failing him."
 
 "Good," Jennifer said. "That means you understand what the work is really about."
-
-They sat in comfortable silence, watching the night settle over Hartwell Park. Tomorrow would bring Thunder and all the challenges he represented. Would bring sidesaddle lessons and the strange twisted balance they required. Would bring more round pen sessions, teaching a traumatized stallion to understand that moving when asked could be a conversation instead of a demand, that human direction didn't have to mean pain.
-
-Tomorrow would bring summer in all its bright intensity.
-
-But tonight, there was just this: two women drinking cider in the gathering dark, a black horse at peace in his paddock, and the quiet certainty that healing—however slow, however uncertain—was possible.
-
-Sage raised her glass toward Promise's distant shape.
-
-"To summer," she said softly.
-
-"To summer," Jennifer agreed. "And to the work it brings."
-
-Outside, a nightjar called its strange churring song. The stars wheeled overhead, indifferent and beautiful. And in the paddock at the edge of the property, a stallion named Promise lowered his head to graze, trusting—just a little, just enough—that tomorrow would not bring pain.
-
-That tomorrow might even bring something worth hoping for.

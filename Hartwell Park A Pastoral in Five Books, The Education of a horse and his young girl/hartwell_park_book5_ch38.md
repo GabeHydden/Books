@@ -136,10 +136,4 @@ His breath was warm against her neck. She reached up to scratch the spot behind 
 
 "Thank you," she said. "For trusting me. For letting me in. For being brave enough to try."
 
-Promise didn't answer—he couldn't, not in words. But he stayed there, his head heavy on her shoulder, his breathing slow and steady. And Sage stayed too, curled in the front of his stall, feeling the warmth of him beside her.
-
-Outside, the fair was winding down. Tomorrow they would pack up and leave, and the road would carry them back to everything familiar. But tonight, in the quiet of the stable, there was nothing but this: a girl and her horse, resting together after a battle well won.
-
-It was enough. It was more than enough.
-
-It was everything.
+Promise didn't answer—he couldn't, not in words. But he stayed there, his head heavy on her shoulder, his breathing slow and steady. And Sage stayed too.

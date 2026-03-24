@@ -37,7 +37,7 @@ When the chores were done and the horses settled, they walked back to the house 
 
 "I have something for you," Riley said. "For tomorrow. But I wanted to give it to you now, while it's just us."
 
-They stopped in the lee of the garden wall, out of sight of the house's windows. Riley pulled something from their coat pocket—a small package wrapped in brown paper and tied with a scrap of the same red ribbon that adorned the horses.
+They stopped in the lee of the garden wall, out of sight of the house's windows. Riley pulled something from his coat pocket—a small package wrapped in brown paper and tied with a scrap of the same red ribbon that adorned the horses.
 
 "Riley, I—"
 
@@ -61,7 +61,7 @@ Sage pulled off her old gloves and slipped on the new ones. They fit perfectly, 
 
 Sage reached into her own pocket and pulled out a small bundle—a handkerchief she'd embroidered herself over the past weeks, working by candlelight when everyone else had gone to bed. The design was simple: a horse's head in profile, dark thread on white linen, with Riley's initials worked into the corner.
 
-Riley took it carefully, unfolding it to see the full design. Their expression shifted into something Sage couldn't quite read.
+Riley took it carefully, unfolding it to see the full design. His expression shifted into something Sage couldn't quite read.
 
 "You made this."
 
@@ -71,7 +71,7 @@ Riley took it carefully, unfolding it to see the full design. Their expression s
 
 "It's just a handkerchief."
 
-"It's hours of your time. Hours of thinking about me while you worked." Riley folded the handkerchief carefully and tucked it into their breast pocket, over their heart. "I'll keep it always."
+"It's hours of your time. Hours of thinking about me while you worked." Riley folded the handkerchief carefully and tucked it into his breast pocket, over his heart. "I'll keep it always."
 
 They stood there in the cold garden, the grey sky pressing down and their breath making clouds between them. Then Riley leaned forward and pressed a kiss to Sage's forehead—gentle, brief, achingly tender.
 
@@ -171,7 +171,7 @@ For a long moment, no one spoke. Then Rebecca smiled—not her usual sardonic tw
 
 "Well then," she said. "I suppose that's settled. We'll show him, and damn the consequences."
 
-Riley reached over and took Sage's hand, squeezing gently. Jennifer raised her glass in a silent toast. And somewhere in the barn, a black stallion dozed in his warm stall, dreaming whatever dreams horses dream, unaware that his future had just been decided by four women who loved him.
+Riley reached over and took Sage's hand, squeezing gently. Jennifer raised her glass in a silent toast. And somewhere in the barn, a black stallion dozed in his warm stall, dreaming whatever dreams horses dream, unaware that his future had just been decided by four people who loved him.
 
 ---
 
@@ -349,7 +349,7 @@ The vicar was an old man with a gentle voice, and his sermon was simple. He spok
 
 "We expect strength to look like power," the vicar said. "We expect healing to look like magic—instantaneous, painless, complete. But the Christmas story teaches us something different. It teaches us that true strength often looks like weakness. That healing is usually slow, requiring patience and presence and faith that the work will matter even when we cannot yet see the results."
 
-Sage thought of Promise as he'd been—broken and dangerous and convinced he was beyond saving. Thought of the long months of patient work, the setbacks that had felt like failures, the slow accumulation of small victories that had somehow added up to transformation.
+Sage thought of Promise as he'd been—broken and dangerous and convinced he was beyond saving. Thought of the long months of patient work, the setbacks that had felt like failures, the way each careful day had somehow added up to transformation.
 
 "The shepherds had to walk to Bethlehem," the vicar continued. "They had to make the journey, step by step through the dark, trusting that what they'd been told was true even though they couldn't see it yet. Faith isn't believing in miracles. Faith is putting one foot in front of the other when you're not sure where the path leads."
 
@@ -359,7 +359,7 @@ Riley's hand found Sage's under the concealment of her skirt. Sage squeezed gent
 
 The congregation sang then—old hymns that Sage had known since childhood but had never heard with these ears. "O Come, All Ye Faithful." "Hark! The Herald Angels Sing." Voices raised together in the ancient words, breath making visible clouds in the cold church, the sound of community and belonging and hope.
 
-When the final blessing was pronounced and the congregation began to filter out into the winter sunlight, Sage felt something different in herself. Not fixed, not whole, but perhaps on her way to both. Like Promise learning to trust again—one step at a time, one day at a time, choosing belief over fear even when the outcome was uncertain.
+When the final blessing was pronounced and the congregation began to filter out into the winter sunlight, Sage felt something different in herself. Not fixed, not whole, but perhaps on her way to both.
 
 ---
 

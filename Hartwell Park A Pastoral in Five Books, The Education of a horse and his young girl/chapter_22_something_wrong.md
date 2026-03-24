@@ -71,13 +71,13 @@ Riley had gone through the progression exactly as planned. Hand on neck. Hand on
 
 "He's doing beautifully," Sage said, and meant it.
 
-Riley straightened from the last lean, brushed dust from the front of their shirt. They looked at Rebecca.
+Riley straightened from the last lean, brushed dust from the front of his shirt. He looked at Rebecca.
 
 "I'm going to lie across him now," Riley said. "Same as Sage did in practice. Belly down, legs hanging. If he tolerates that, we can try the mount."
 
 Rebecca nodded. "Sage, stay exactly where you are. Promise, easy."
 
-Riley put their left foot in the stirrup and pushed up smoothly, swinging their upper body across the saddle so they lay on their stomach, legs hanging on the near side, arms draped on the far side. More weight than the leaning — all of Riley's weight now, centered on the saddle, pressing down through the stirrup.
+Riley put his left foot in the stirrup and pushed up smoothly, swinging his upper body across the saddle so he lay on his stomach, legs hanging on the near side, arms draped on the far side. More weight than the leaning — all of Riley's weight now, centered on the saddle, pressing down through the stirrup.
 
 Promise tensed. Every muscle went tight, and Sage felt it through the halter — the sudden rigidity, the coiled energy of a horse deciding between trust and flight. His head came up, nostrils flaring.
 
@@ -101,7 +101,7 @@ Riley went up again. Belly-down, full weight. Promise tensed, settled, blew out 
 
 "Good," Rebecca said, and something in her voice relaxed the smallest degree. "He's accepting it. The belly-down weight isn't triggering him."
 
-Riley slid off and stood at Promise's shoulder, one hand resting on his neck. They looked at Sage, then at Rebecca.
+Riley slid off and stood at Promise's shoulder, one hand resting on his neck. He looked at Sage, then at Rebecca.
 
 "I'm going to sit up," Riley said. "Swing my leg over. Sit in the saddle properly."
 
@@ -111,7 +111,7 @@ Sage nodded, her hand tightening on Promise's halter. This was it. The moment th
 
 Rebecca shortened the longe line slightly. "Whenever you're ready, Riley."
 
-Riley took a breath. Put their left foot in the stirrup. Pushed up, belly across the saddle — and this time, instead of staying there, swung their right leg over.
+Riley took a breath. Put his left foot in the stirrup. Pushed up, belly across the saddle — and this time, instead of staying there, swung his right leg over.
 
 The motion was smooth-practiced, the kind of movement a body made when it had done a thing many times before. Riley settled into the saddle, weight shifting, finding balance, legs coming down naturally on both sides of Promise's body.
 
@@ -135,7 +135,7 @@ He looked like the horse who'd arrived seven months ago. The one who wouldn't le
 
 But Sage wasn't looking at Promise.
 
-"Riley!" She was on her knees in the dirt before she knew she'd moved, her hands hovering over Riley's crumpled shape. Riley lay on their left side, one arm trapped beneath their body, face pressed into the round pen footing. Not moving.
+"Riley!" She was on her knees in the dirt before she knew she'd moved, her hands hovering over Riley's crumpled shape. Riley lay on his left side, one arm trapped beneath his body, face pressed into the round pen footing. Not moving.
 
 *Not moving.*
 
@@ -183,9 +183,9 @@ Getting Riley upright took three attempts. Each one wrung sounds from Riley that
 
 "Can you walk?" Jennifer asked.
 
-"Yes." Riley's jaw was set so tight the word barely escaped. They took a step. Then another. Sage matched every one, bearing as much of Riley's weight as she could, her arm locked around Riley's waist.
+"Yes." Riley's jaw was set so tight the word barely escaped. He took a step. Then another. Sage matched every one, bearing as much of Riley's weight as she could, her arm locked around Riley's waist.
 
-They were halfway across the stable yard when Riley stumbled on a cobblestone. Sage caught them — both arms now, Riley's full weight against her chest, and she could feel Riley shaking, the fine constant tremor of a body in more pain than it could easily process.
+They were halfway across the stable yard when Riley stumbled on a cobblestone. Sage caught him — both arms now, Riley's full weight against her chest, and she could feel Riley shaking, the fine constant tremor of a body in more pain than it could easily process.
 
 "I've got you," she said. "I've got you. Keep going."
 

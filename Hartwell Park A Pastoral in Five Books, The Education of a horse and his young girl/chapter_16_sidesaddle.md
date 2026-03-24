@@ -106,7 +106,7 @@ Riley appeared with two cups of water, handed her one, and sat beside her.
 
 Sage drank her water, considering this. "How long did it take you?"
 
-"Three weeks to feel competent. Six weeks to feel comfortable. But I'd been riding astride since I was six. Had to learn sidesaddle when I was fourteen because my grandmother insisted." Riley's expression suggested what she'd thought of that insistence. "Hated every minute of it until suddenly I didn't. Until it just... clicked. And then I had two ways to ride instead of one."
+"Three weeks to feel competent. Six weeks to feel comfortable. But I'd been riding astride since I was six. Had to learn sidesaddle when I was fourteen because my grandmother insisted." Riley's expression suggested what he'd thought of that insistence. "Hated every minute of it until suddenly I didn't. Until it just... clicked. And then I had two ways to ride instead of one."
 
 "Do you ever ride sidesaddle now?"
 
@@ -171,25 +171,3 @@ Sage nearly fell off Thunder just from surprise.
 "In sidesaddle? Over fences?"
 
 "How else do you think ladies follow the hunt?" Riley's grin widened. "This isn't just about looking proper, Sage. Sidesaddle done right is real riding. You'll see."
-
-***
-
-That evening, soaking in a hot bath Jennifer had prepared with Epsom salts and lavender, Sage considered Riley's words. Sidesaddle done right is real riding. Not just society's way of constraining women, of making them decorative passengers. But actual riding—communication, partnership, skill.
-
-Another translation of the language she was learning.
-
-Her body ached everywhere the water touched, but it was the ache of muscles working, growing stronger. Learning new patterns. Adapting.
-
-Tomorrow they would trot. The day after, they would canter. And eventually—impossibly—they would jump.
-
-All from this sideways, twisted position that had seemed impossible three days ago.
-
-She thought about Promise, learning voice commands in the round pen. Learning that pressure could be a question instead of a demand, that release was reward, that humans could communicate clearly without force. Taking weeks to understand what another horse might learn in days, because his fear had to be acknowledged and worked through with patience.
-
-They were both translating. Both learning new languages. Both discovering that difficult things became possible if you were willing to feel incompetent long enough to become competent.
-
-Sage sank deeper into the hot water, feeling her muscles relax, and smiled despite the ache.
-
-The work continued.
-
-And she was ready for it.

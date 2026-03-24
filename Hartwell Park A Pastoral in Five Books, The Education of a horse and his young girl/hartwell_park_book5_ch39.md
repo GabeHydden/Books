@@ -119,7 +119,3 @@ Sage straightened, gave Promise one last scratch, and turned toward the house. H
 "Good night," she called softly. "Sleep well."
 
 Then she went inside, to the warmth and the light and the people waiting for her, and closed the door on the spring darkness.
-
-The year was over. The story was complete.
-
-But the life—the life was just beginning.

@@ -133,27 +133,3 @@ Sage nodded, understanding the wisdom even if she didn't like the timeline. Thun
 She cooled Clover out with careful attention, groomed her, thanked her for being the steady teacher she'd always been. By the time she was done, her whole body ached, but it was the good kind of ache. The kind that came from doing real work, from taking real steps forward.
 
 That evening, she made her way to Promise's fence despite her exhaustion. He came to greet her immediately, taking his apple with the gentle precision she'd come to love.
-
-"I rode today," she told him, scratching behind his ears. "Just Clover, just walking. But I got back on. After falling, after hurting Thunder, after learning that losing control has consequences—I got back on anyway."
-
-Promise leaned into her hand, comfortable. The evening sun turned his black coat to blue-black, made him look almost otherworldly in the golden light.
-
-"That's what this is, I think. Not just learning to ride, but learning to get back on when you fall. Learning to do better after you've done worse. Learning that mistakes don't have to define you—they can teach you instead, if you let them."
-
-She thought about the past week: the pain, the shame, the forced rest. Thought about Thunder's cut mouth healing, about her bruised ribs mending. Thought about Riley's words: *Horses meet you fresh, no judgment about what happened last week.*
-
-Maybe she could learn to do the same for herself. To acknowledge the mistake, learn from it, and then move forward without carrying it like a weight.
-
-"I'll keep getting better," she promised Promise. "For you. For Thunder. For all of them. And for myself. Because that's what it means to do this work—to keep learning, keep growing, keep choosing to be better than you were yesterday."
-
-Promise pushed his nose against her shoulder, then turned to graze, comfortable in her presence. The gesture of a horse who'd learned to trust, slowly and carefully, one day at a time.
-
-Just like Sage was learning to trust herself again.
-
-One breath. One ride. One moment of choosing patience over force, control over impulse, learning over shame.
-
-The work continued.
-
-Healing continued.
-
-Both of them, in their own ways, learning to be brave enough to try again.

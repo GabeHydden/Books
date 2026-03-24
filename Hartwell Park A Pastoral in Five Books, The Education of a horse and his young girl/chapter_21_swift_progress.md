@@ -63,7 +63,7 @@ She mentioned as much to Riley that evening as they groomed their horses after a
 
 "Promise is going to be ready for backing before winter," she said, unable to keep the excitement from her voice. "At this rate, anyway. Rebecca says his long-lining is as good as horses who've been in training for months."
 
-Riley didn't respond immediately, focused on picking a stone from Clover's hoof. When they looked up, their expression was thoughtful. "That's fast."
+Riley didn't respond immediately, focused on picking a stone from Clover's hoof. When he looked up, his expression was thoughtful. "That's fast."
 
 "I know! It's amazing. All that foundation work is paying off."
 
@@ -81,7 +81,7 @@ Sage had to think about it. "Morning session with Rebecca, usually. Then I work 
 
 "Right. And now he can. That's good." Riley was quiet for a moment. "I just wonder if sometimes we get so caught up in how much a horse can handle that we forget to ask how much they should be handling."
 
-Sage felt a flicker of defensiveness rise in her chest and pushed it down. Riley wasn't criticizing. Just... observing. The way they always observed, quiet and thoughtful.
+Sage felt a flicker of defensiveness rise in her chest and pushed it down. Riley wasn't criticizing. Just... observing. The way he always observed, quiet and thoughtful.
 
 "I'll mention it to Rebecca," she said.
 
@@ -153,11 +153,11 @@ Rebecca made a small sound—not quite agreement, not quite dissent. "I'll speak
 
 ---
 
-Sage found Riley in the tack room that afternoon, cleaning bridles with the methodical care they brought to everything. She'd been bursting to talk about it all morning but had waited, wanting to hear Rebecca's version of the conversation first.
+Sage found Riley in the tack room that afternoon, cleaning bridles with the methodical care he brought to everything. She'd been bursting to talk about it all morning but had waited, wanting to hear Rebecca's version of the conversation first.
 
 "Rebecca told you about Saturday?" she asked.
 
-"She told me." Riley didn't look up from the bridle in their hands, working saddle soap into the leather with small circles.
+"She told me." Riley didn't look up from the bridle in his hands, working saddle soap into the leather with small circles.
 
 "Are you excited? I'm excited. I know I shouldn't be—I should be measured and cautious and all the things Rebecca would want. But Riley, he's going to be *backed*. After everything he's been through. After everything we've—"
 
@@ -165,7 +165,7 @@ Sage found Riley in the tack room that afternoon, cleaning bridles with the meth
 
 "Of course he does. You've worked with him for months. He's comfortable with you."
 
-"He's comfortable with me at a distance. In the round pen, on the other end of a longe line, as part of the scenery while you do the real work." Riley wiped their hands on a cloth, taking their time. "He's never had my weight on him. He's never had anyone's weight on him except the people who hurt him. And now the first person to sit on his back since Thornton's yard is going to be someone who isn't you."
+"He's comfortable with me at a distance. In the round pen, on the other end of a longe line, as part of the scenery while you do the real work." Riley wiped his hands on a cloth, taking his time. "He's never had my weight on him. He's never had anyone's weight on him except the people who hurt him. And now the first person to sit on his back since Thornton's yard is going to be someone who isn't you."
 
 The words settled between them like something with weight.
 
@@ -185,7 +185,7 @@ But Rebecca had decades of experience. Rebecca had backed hundreds of horses. An
 
 Riley nodded slowly, returning to the bridle. "I'm sure you're right."
 
-But their hands, usually so steady, pressed too hard on the next stroke, and the saddle soap crumbled.
+But his hands, usually so steady, pressed too hard on the next stroke, and the saddle soap crumbled.
 
 ---
 

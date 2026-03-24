@@ -68,7 +68,7 @@ Riley, buttering bread at the counter, spoke without turning around. "Start with
 
 "And Sage?" Rebecca's voice was serious. "If he's not ready, that's information too. Not failure. Just information."
 
-Sage nodded, understanding. Healing wasn't linear. She'd learned that lesson in her bones. Some days Promise came to the fence immediately. Some days he stayed in the middle of his paddock, processing. Both were okay. Both were part of the work.
+Sage nodded, understanding. Some days Promise came to the fence immediately. Some days he stayed in the middle of his paddock, processing. Both were okay. Both were part of the work.
 
 That morning she brought an apple as usual, but also brought a grooming cloth—soft, worn linen that wouldn't be too strange or scratchy. Promise took his apple, crunched it with evident satisfaction, and then stood there, watching her.
 
@@ -94,7 +94,7 @@ Sage's eyes burned with tears but she blinked them back, not wanting to startle 
 
 He raised his head, looked at her with those dark, intelligent eyes, and then walked away. Not fleeing. Just done. Just ending the interaction on his terms.
 
-Riley appeared from somewhere behind her—they'd been watching, Sage realized, staying back to give them space but there in case something went wrong.
+Riley appeared from somewhere behind her—he'd been watching, Sage realized, staying back to give them space but there in case something went wrong.
 
 "That was beautiful," Riley said quietly. "That was perfect. You read him exactly right—knew when to stop, gave him the choice to leave. That's how you build trust."
 
@@ -158,7 +158,7 @@ She returned to his neck, to the safe territory, and felt him relax again. After
 
 He tolerated it for perhaps ten seconds, then stepped away.
 
-"Progress," Riley said from where they were working nearby. "Every time he lets you try, even if he says no, that's him making a choice. That's him communicating. Honor that and he'll trust you more."
+"Progress," Riley said from where he was working nearby. "Every time he lets you try, even if he says no, that's him making a choice. That's him communicating. Honor that and he'll trust you more."
 
 Sage had been at Hartwell for a month now. A month that felt like both forever and no time at all. She could hardly remember the girl who'd arrived in Rebecca's carriage, bruised and certain her life was over. That girl felt like someone else. Someone she'd been but no longer was.
 
@@ -244,53 +244,7 @@ And she was.
 
 That night, in her room, Sage stood at the window looking out over the paddocks one last time before bed. The moon was nearly full, silvering everything it touched. She could just make out Promise in his enclosure, a darker shadow against the night grass.
 
-A month. Four weeks. Twenty-eight days.
-
-It didn't seem possible that so much could change in such a short time. That a girl could arrive certain her life was over and leave that certainty behind like an ill-fitting dress. That a terrified horse could learn to take apples from a human hand. That broken things could begin to heal.
-
-But here was the evidence: her own reflection in the window glass. Stronger. Clearer. More herself than she'd ever been. Her throat bore no marks. Her hands were calloused from work. Her body was tired in the good way, the way that meant she'd used it for something purposeful.
-
-She touched her throat one more time, lightly. Remembered the bruises that had been there. Remembered Mr. Pemberton's hands, the way the world had gone grey at the edges, her mother's face turned away.
-
-Those things had happened. They were real. They had changed her in ways she was still discovering.
-
-But they were not the whole story. Not the last chapter.
-
-She thought about Rebecca's words: *We work with them until they become who they were always meant to be.* Maybe that was true for horses and for people alike. Maybe the point wasn't to erase what had happened, but to grow large enough to contain it. To hold the wound alongside the healing, the memory alongside the hope.
-
-She thought about Jennifer's hand brushing her shoulder that first week, the way she had flinched—and then stayed in her chair. About Riley's hands adjusting her riding position, and the way her body had known that touch was safe before her mind could catch up. About Promise's nose against her palm this morning, the warmth of his breath, the choice he had made to reach for her.
-
-All those moments, accumulating. Building something.
-
-And out in the paddock, a horse who'd been scheduled for slaughter was grazing peacefully, learning day by day that the world held more than pain.
-
-Tomorrow would bring more of the same. More apples, more grooming, more careful building of trust. More riding lessons, more farm work, more integration into this strange, wonderful household that operated by rules she was still learning but already loved. More of Riley's patient teaching, Jennifer's warm presence, Rebecca's quiet wisdom.
-
-More of Promise learning that humans could be safe. More of Sage learning that she could be trusted with precious, broken things—including herself.
-
-Spring had brought them both here. Summer would build on that foundation. And beyond that—autumn, winter, another spring—stretched a future that was no longer terrifying. Just unknown. And unknown, Sage was learning, was not the same as dangerous.
-
-She wasn't healed. That was too simple, too final a word for something that would never quite finish.
-
-But she was healing. Actively, presently, ongoingly *healing*. Becoming someone who could be touched without fear. Someone who could touch without flinching. Someone whose body was, slowly and carefully, becoming hers again.
-
-Promise raised his head in the moonlight, looked toward the house. Toward her window. She didn't know if he could see her there, silhouetted against the lamp light. Didn't know if he was looking for her or just surveying his territory, as horses do.
-
-But she liked to think he knew she was there. Liked to think that his presence in the night and hers in the window were a kind of conversation. A promise being kept on both sides.
-
-*I will show up tomorrow,* she thought. *And the day after. And the day after. For as long as you need me to.*
-
-And maybe, in his own way, he was thinking the same thing.
-
-Maybe they were both learning to keep promises to each other. And to themselves.
-
-Spring was ending. Summer was coming. And they would face it together, two creatures learning to trust, learning to heal, learning that maybe—maybe—broken things could be mended after all.
-
-Not fixed. Not returned to what they were. But mended. Made into something new. Something that bore its scars and its history and its hard-won wisdom, and chose to keep going anyway.
-
-Chose to believe that tomorrow could be different than yesterday.
-
-Chose hope.
+A month. Her throat bore no marks. Her hands were calloused from work. And out in the paddock, a horse who'd been scheduled for slaughter was grazing peacefully in the moonlight.
 
 Sage smiled at her reflection, at the stranger she was becoming, and closed the curtains.
 

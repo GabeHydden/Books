@@ -156,10 +156,8 @@ As she rode out of the ring, she passed close to where Rebecca stood with Jennif
 
 "Tomorrow's the real test," Rebecca said quietly. "The speed demonstration. But today—today was exactly what we needed."
 
-Sage nodded. Tomorrow would bring the jumping course, the crowds, and whatever Thornton planned to do. But for now, for this one afternoon, Promise had shown them all exactly what he'd become.
+Sage nodded, her hand still on Promise's neck.
 
 She looked back at the ring, where the next exhibitor was entering. Thornton still stood at the edge of the crowd, his face dark with something that might have been fury.
 
-Let him watch, she thought. Let him see what patience and kindness have built.
-
-Tomorrow, they would show him even more.
+Let him watch, she thought.

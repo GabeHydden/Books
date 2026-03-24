@@ -119,11 +119,11 @@ They paused at the crest of a hill that overlooked the whole of Hartwell's valle
 
 "Winter does that. Makes you focus on what matters—warmth, food, companionship. All the complications of summer just... fall away."
 
-Sage looked at Riley—really looked, taking in the pink flush the cold had brought to their cheeks, the way their breath caught in the winter light, the steady calm of their presence. They'd spent nearly nine months working side by side, and somewhere in there, friendship had become something deeper. Something that felt like possibility.
+Sage looked at Riley—really looked, taking in the pink flush the cold had brought to his cheeks, the way his breath caught in the winter light, the steady calm of his presence. They'd spent nearly nine months working side by side, and somewhere in there, friendship had become something deeper. Something that felt like possibility.
 
 "What matters to you?" she asked. "When everything's stripped down?"
 
-Riley considered the question seriously, the way they considered everything. "The horses. The work—not because I have to, but because it's good work, meaningful work. My mother, Rebecca, this place." A pause. "You."
+Riley considered the question seriously, the way he considered everything. "The horses. The work—not because I have to, but because it's good work, meaningful work. My mother, Rebecca, this place." A pause. "You."
 
 The word hung in the cold air between them, small and enormous at the same time.
 
@@ -149,13 +149,13 @@ They sat like that for a long moment, hands linked across the gap between horses
 
 "Always practical."
 
-"Someone has to be." But Riley was smiling, and they didn't let go of Sage's hand until the path narrowed and the horses had to walk single file.
+"Someone has to be." But Riley was smiling, and he didn't let go of Sage's hand until the path narrowed and the horses had to walk single file.
 
 ---
 
 Evening at Hartwell meant the parlor fire and the day's accounts and the comfortable presence of the household gathered together. Rebecca reviewed the ledger with Jennifer while Sage sat nearby, mending a torn stable blanket with the careful stitches Jennifer had taught her.
 
-Riley was out checking the horses one last time—their ritual, walking the aisle before bed, making sure everyone was comfortable in their stalls for the night. Promise had adapted well to being stabled; he seemed to enjoy having neighbors now, often hanging his head over his door to watch the activity in the barn. Sage had offered to go along, but Riley had smiled and said, "Stay warm. I'll be back."
+Riley was out checking the horses one last time—his ritual, walking the aisle before bed, making sure everyone was comfortable in their stalls for the night. Promise had adapted well to being stabled; he seemed to enjoy having neighbors now, often hanging his head over his door to watch the activity in the barn. Sage had offered to go along, but Riley had smiled and said, "Stay warm. I'll be back."
 
 So she sat by the fire, needle moving through fabric, and thought about the day. About finances and spring fairs and Promise's future as a breeding stallion. About stripped-down essentials and hands linked across the space between horses. About the way Riley had said *you've become essential* like it was simple fact, like the sky being blue or grass being green.
 
@@ -175,15 +175,15 @@ Sage considered. "Now I'm still watching, but it's different. I'm watching becau
 
 "Is it that obvious?"
 
-"Only to anyone with eyes." Jennifer smiled. "I'm not prying, dear. Just... glad. Riley's been solitary for a long time. They needed someone who understood the work, who shared the values. Someone worth opening their heart to."
+"Only to anyone with eyes." Jennifer smiled. "I'm not prying, dear. Just... glad. Riley's been solitary for a long time. He needed someone who understood the work, who shared the values. Someone worth opening his heart to."
 
 "I don't know if I'm worth—"
 
 "You are." Jennifer's tone brooked no argument. "You've worked harder than anyone I've seen to rebuild yourself this year. You've helped rebuild Promise. You've become part of this household in ways that matter. Whatever grows between you and Riley, it's growing from solid ground."
 
-The front door opened, bringing a gust of cold air and Riley's familiar footsteps. They appeared in the parlor doorway, cheeks ruddy from the cold, bits of hay still clinging to their coat.
+The front door opened, bringing a gust of cold air and Riley's familiar footsteps. They appeared in the parlor doorway, cheeks ruddy from the cold, bits of hay still clinging to his coat.
 
-"Everyone's settled," they reported. "Promise was restless at first—kept looking over his door like he was waiting for something. Then I gave him a few minutes of scratching and he calmed right down. I think he just wanted company."
+"Everyone's settled," he reported. "Promise was restless at first—kept looking over his door like he was waiting for something. Then I gave him a few minutes of scratching and he calmed right down. I think he just wanted company."
 
 "He's gotten used to attention," Sage said. "I think he likes knowing people are nearby now."
 
@@ -192,10 +192,6 @@ The front door opened, bringing a gust of cold air and Riley's familiar footstep
 "So have you," Rebecca said, glancing up from her ledger with an expression that might have been meant for Sage, or Riley, or both of them. The warmth in it was real but brief — there and gone, like her rare smiles, before she returned to her numbers.
 
 Outside, the winter night pressed against the windows, cold and dark. Inside, the fire crackled and the household settled into their evening routines. Down in the barn, a black stallion dozed in his warm stall, occasionally lifting his head to listen to the sounds of the other horses breathing nearby—part of a herd now, in ways he'd never imagined possible.
-
-Tomorrow would bring more work—there was always more work. Marcus needed to be ridden, Belle needed patient handling, Promise would be turned out in the morning for exercise and fresh air before the day's training began. The endless rhythms of a working stable demanded attention. The spring fair loomed on the horizon with its promises and pressures.
-
-But tonight, there was firelight and companionship and the quiet certainty of belonging. Tonight, that was enough.
 
 ---
 

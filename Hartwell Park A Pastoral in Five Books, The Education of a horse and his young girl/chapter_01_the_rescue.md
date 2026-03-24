@@ -17,11 +17,11 @@ Sage turned from the window to find her aunt studying her with those sharp grey 
 
 Sage managed a nod, though she wasn't certain what response her aunt expected. Nothing in her life resembled any place she had known. The world had revealed itself to be constructed of trapdoors and false floors, and she had already fallen through the worst of them.
 
-"We keep," Rebecca said carefully, "an unusual household. The neighbors consider us eccentric at best, dangerous at worst. I employ a woman as my head groom—Riley, you'll meet her—and she is..." Another pause. "She is not what society expects of someone in her position."
+"We keep," Rebecca said carefully, "an unusual household. The neighbors consider us eccentric at best, dangerous at worst. I employ someone as my head groom—Riley, you'll meet him—and he is..." Another pause. "He is not what society expects of someone in his position."
 
-Despite everything, Sage felt a flicker of curiosity. "Because she's a woman?"
+Despite everything, Sage felt a flicker of curiosity. "Because of who he is?"
 
-"That, yes. But also because Riley was born—" Rebecca stopped entirely now, her eyes searching Sage's face with an unblinking directness that most people would have softened or looked away from. She did not look away. "You will find that we do not traffic in pretense at Hartwell. Riley was born in a female body, but she is not a woman in the way most understand the term. She binds her chest and wears men's clothing and asks to be addressed with masculine terms. I employ her because she is the finest horseman I have ever met, and because she understands better than anyone what it means to be forced into a shape that does not fit one's soul."
+"Yes. Because Riley was born—" Rebecca stopped entirely now, her eyes searching Sage's face with an unblinking directness that most people would have softened or looked away from. She did not look away. "You will find that we do not traffic in pretense at Hartwell. Riley was born in a female body, but he is not a woman in the way most understand the term. He binds his chest and wears men's clothing and lives as a man. I employ him because he is the finest horseman I have ever met, and because he understands better than anyone what it means to be forced into a shape that does not fit one's soul."
 
 The carriage rounded a curve, and through the window Sage glimpsed a stone gatehouse, its weathered pillars marking the entrance to a long drive lined with ancient oaks. She pressed her hand more firmly against her throat, that gesture that had become habit, armor, prayer.
 
@@ -47,11 +47,11 @@ Paddocks stretched in every direction, their fencing neat but clearly built for 
 
 "Three hundred acres," Rebecca said, and something in her shifted now—her spine straightened further, her chin lifted, her voice took on the precision of someone reciting beloved facts. "Most of it pasture. We keep thirty horses at present, though that number varies. Some come to us for training, but most—" She gestured toward the grazing herd. "Most come to us broken in ways that cannot be undone with time. We give them a place to simply exist."
 
-The carriage pulled up before the house, and a figure emerged from the direction of the barn—a person in rough working clothes, moving with the economical grace of someone comfortable in their body. They wore a battered hat pulled low, and as they approached to take the horses' heads, Sage saw the broad planes of their face, the line of their jaw, the way they moved with absolute confidence in space.
+The carriage pulled up before the house, and a figure emerged from the direction of the barn—a person in rough working clothes, moving with the economical grace of someone comfortable in his body. He wore a battered hat pulled low, and as he approached to take the horses' heads, Sage saw the broad planes of his face, the line of his jaw, the way he moved with absolute confidence in space.
 
 "Riley," Rebecca called, stepping down from the carriage with the same efficient economy of movement she brought to everything. No wasted gesture, no hesitation. "We're home. Would you see to the bags?"
 
-"Welcome back, Miss Hartwell." Riley's voice was low, textured like weather-worn wood. They turned to Sage, and their eyes—a startling blue in a sun-weathered face—held neither pity nor excessive curiosity. Just a straightforward acknowledgment. "Miss Morrison. Glad you've come."
+"Welcome back, Miss Hartwell." Riley's voice was low, textured like weather-worn wood. He turned to Sage, and his eyes—a startling blue in a sun-weathered face—held neither pity nor excessive curiosity. Just a straightforward acknowledgment. "Miss Morrison. Glad you've come."
 
 Sage climbed down on unsteady legs, her muscles protesting after hours of travel. She managed a nod, found she could not quite produce words. Riley seemed to understand, already turning to the luggage with practiced efficiency.
 

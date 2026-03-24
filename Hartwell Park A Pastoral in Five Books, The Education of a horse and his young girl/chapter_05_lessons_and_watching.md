@@ -36,7 +36,7 @@ But the old rules still had weight. Still pressed against her like stays too tig
 
 Sage picked up the trousers, felt the weight of the fabric. The weight of the choice.
 
-She thought of Rebecca saying: *We do not traffic in pretense at Hartwell.* Thought of Jennifer's easy comfort in her own skin, Riley's absolute confidence in their unusual place in the world. Thought of Mr. Pemberton's hands on her body, taking what he wanted, society's rules giving him permission.
+She thought of Rebecca saying: *We do not traffic in pretense at Hartwell.* Thought of Jennifer's easy comfort in her own skin, Riley's absolute confidence in his unusual place in the world. Thought of Mr. Pemberton's hands on her body, taking what he wanted, society's rules giving him permission.
 
 What did propriety matter, really? What had it ever protected her from?
 
@@ -102,7 +102,7 @@ The horse seemed enormous from this angle, all muscle and height and living, bre
 
 "She won't hurt you," Riley said, checking the girth strap one more time. "Clover's taught more people to ride than I can count. She knows her job."
 
-Riley moved to Clover's head and slid a finger along the bit where it rested against the mare's lip, running the pad of her thumb across the metal edge. "Before every ride," she said, matter-of-fact, "you check the tack. Every piece. Run your fingers along the bit—feel for rough spots, burrs, anything sharp. Check the leather for cracks, the stitching for fraying, the buckles for rust. Every time." She moved back along Clover's side, testing a buckle on the cheekpiece, tugging the reins where they attached. "The horse can't tell you his equipment is wrong. He can only tell you it hurts, and by then the damage is done."
+Riley moved to Clover's head and slid a finger along the bit where it rested against the mare's lip, running the pad of his thumb across the metal edge. "Before every ride," he said, matter-of-fact, "you check the tack. Every piece. Run your fingers along the bit—feel for rough spots, burrs, anything sharp. Check the leather for cracks, the stitching for fraying, the buckles for rust. Every time." He moved back along Clover's side, testing a buckle on the cheekpiece, tugging the reins where they attached. "The horse can't tell you his equipment is wrong. He can only tell you it hurts, and by then the damage is done."
 
 Sage nodded, trying to absorb this along with everything else—the names of the saddle parts, the right way to approach, the left-side mounting, all of it pouring in faster than she could hold.
 
@@ -300,22 +300,6 @@ Sage thought of Clover's patient teaching that afternoon. The way the mare had s
 
 Rebecca was silent for a long moment. "I don't know. That will be his choice as much as yours. But you're learning what you need to learn. Learning how to listen to a horse. How to ask rather than demand. How to make yourself worth trusting." She paused. "Those are rare skills, Sage. Most people who work with horses never learn them."
 
-After supper, Sage stood at her bedroom window looking out over the paddocks. The sun was setting, turning everything gold and rose, and she could just make out Promise's dark shape in his enclosure. He was at the far end now, his usual evening position, but something about his stance seemed different. Looser. Less like a creature waiting for pain and more like a horse simply existing in space.
-
-Tomorrow she would sit with him again. Would bring her book and her patience and her commitment to being nothing more than predictable. And tomorrow she would ride Clover again, would feel that strange rolling rhythm beneath her, would learn a little more about what it meant to communicate with a creature who couldn't speak but could understand.
-
-The work felt enormous and impossible and also somehow exactly right.
-
-She touched her throat one more time, felt barely anything—the bruises were nearly gone now, just the faintest shadow of discoloration. The visible marks healing.
-
-The invisible ones would take longer.
-
-But today she had ridden a horse. Today she had let Riley's hands adjust her position without flinching. Today Promise had grazed eight feet from where she sat.
-
-Small things. Incremental things.
-
-Everything.
-
 ***
 
 Promise stood at the far end of his paddock in the evening light, watching the small-human disappear into the big-house. She had been at the fence again today—twice now, morning and evening, the pattern he had learned was safe. Morning-human, evening-human, always sitting, always not-moving, always leaving-without-demanding.
@@ -354,25 +338,9 @@ Wonder what the small-human was learning. Wonder why the old-calm-mare accepted 
 
 Wonder if different might actually be possible.
 
-He crushed the wondering immediately, turned back to grazing. Different was dangerous. Hope was the trap. The man-who-hits had shown him what happened when you trusted, when you let your guard down, when you believed that maybe this time would be better.
+He crushed the wondering immediately. Different was dangerous. Hope was the trap.
 
 But the small-human kept coming back. Morning, evening, every day the same. And today she had ridden the old-calm-mare and the old-calm-mare had not been hurt by it.
-
-Promise grazed in the evening light and tried not to wonder. Tried not to be curious. Tried not to care that the small-human had learned something new today and seemed pleased about it.
-
-But the wondering was there anyway, small and persistent, like an itch he couldn't reach.
-
-What if the small-human was learning to be the kind of human the old-calm-mare trusted? And if she became that kind of human, what would that mean for him?
-
-Promise didn't know.
-
-And not-knowing was frightening in a different way than fear usually was. Because not-knowing meant maybe-changing. And changing meant nothing would be predictable anymore. And predictable was the only kind of safe he understood.
-
-But the small-human sat by his fence every morning, every evening, asking nothing.
-
-And the old-calm-mare had carried her without fear.
-
-And the tall-human's touching had been gentle.
 
 And somewhere in his chest, despite everything he knew about humans and pain and the ways hope always led to worse-pain, Promise felt something shift.
 
