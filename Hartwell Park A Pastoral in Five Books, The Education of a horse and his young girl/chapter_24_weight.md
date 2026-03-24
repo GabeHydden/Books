@@ -175,7 +175,7 @@ Sage's heart hammered so hard she could feel it in her throat. "Are you sure?"
 
 "No. I'm never sure. But he's as ready as he's going to get, and so are you." Rebecca moved to Promise's head, taking his lead rope. Her hands found their position — one under the chin, one at the cheekpiece — with the same exact placement she always used, the muscle-memory of a thousand horses held steady. "I'll hold him. Riley will spot you."
 
-Riley stood by the mounting block, arm still in the sling but the hand freed now, mobile enough to help if needed. They'd come to every session for the past week, watching from the fence, offering the occasional quiet observation. Now they looked at Sage with an expression that held everything — hope and fear and the particular understanding of someone who had been up there and been thrown.
+Riley stood by the mounting block, arm still in the sling but the hand freed now, mobile enough to help if needed. He'd come to every session for the past week, watching from the fence, offering the occasional quiet observation. Now he looked at Sage with an expression that held everything — hope and fear and the particular understanding of someone who had been up there and been thrown.
 
 "All you have to do is swing your leg over and sit," Rebecca said. "Don't ask him to move. Don't do anything. Just sit."
 
@@ -293,11 +293,11 @@ Sage looked down at Promise — at the tension in his neck, the too-fast breathi
 
 She dismounted. Promise shook himself, blew out, and within seconds was nosing at her pockets, his whole body loose and easy now that the weight was gone. The transformation was immediate and total — ground-Sage was his person, his safe-human, his comfort. Saddle-Sage was a shape his body couldn't stop fearing.
 
-Riley was at the fence, watching. Their arm was out of the sling now — had been for a few days — though they still held it carefully, the shoulder not yet ready for full work. They said nothing as Sage led Promise out of the pen. But their eyes followed the conversation that hadn't quite happened yet.
+Riley was at the fence, watching. His arm was out of the sling now — had been for a few days — though he still held it carefully, the shoulder not yet ready for full work. He said nothing as Sage led Promise out of the pen. But his eyes followed the conversation that hadn't quite happened yet.
 
 ---
 
-That evening, Sage sat on the kitchen floor beside Riley's chair — their chair now, the armchair by the fire that had become Riley's place during the long weeks of recovery. Supper was over. Jennifer had gone to check on the horses. Rebecca was somewhere in the house, her footsteps occasionally audible above them.
+That evening, Sage sat on the kitchen floor beside Riley's chair — his chair now, the armchair by the fire that had become Riley's place during the long weeks of recovery. Supper was over. Jennifer had gone to check on the horses. Rebecca was somewhere in the house, her footsteps occasionally audible above them.
 
 "He tolerates me," Sage said. "Astride, he tolerates me. But he's not there. He's somewhere else entirely — just holding on, waiting for it to be over."
 

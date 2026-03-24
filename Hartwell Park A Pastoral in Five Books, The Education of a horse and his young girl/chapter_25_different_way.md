@@ -19,7 +19,7 @@ And then she thought about something else entirely.
 
 Sidesaddle.
 
-Both legs on one side. Weight shifted left. A completely different shape, a completely different pressure, a completely different *feel*. Nothing like what Thornton's riders had done. Nothing like what Riley had been doing the morning Promise threw them. Nothing like any rider he'd ever known.
+Both legs on one side. Weight shifted left. A completely different shape, a completely different pressure, a completely different *feel*. Nothing like what Thornton's riders had done. Nothing like what Riley had been doing the morning Promise threw him. Nothing like any rider he'd ever known.
 
 Sage sat up in bed, her heart beating fast.
 
@@ -55,7 +55,7 @@ He turned his head to investigate, nosing at the pommels that curved up from the
 
 "Good sign," Rebecca murmured from his head. "He's interested, not defensive."
 
-Riley appeared at the fence. They'd been coming to every session for weeks now, the shoulder nearly healed, the ribs knitted enough that full breaths came without flinching. They leaned on the top rail and said nothing, watching.
+Riley appeared at the fence. He'd been coming to every session for weeks now, the shoulder nearly healed, the ribs knitted enough that full breaths came without flinching. He leaned on the top rail and said nothing, watching.
 
 Sage ran her fingers along the bit — the automatic check, steady as breathing — and gathered the reins. She approached the mounting block with her stomach tight. Sidesaddle mounting was awkward at the best of times, and doing it on a horse who might spook at the unfamiliar feeling —
 
@@ -113,7 +113,7 @@ Sage looked at Riley — at the generosity of it, the willingness to name the ha
 
 "Thank you," Sage said.
 
-"Don't thank me. Ride him." Riley smiled, and the smile reached their eyes. "Ride him the way he needs to be ridden. That's thanks enough."
+"Don't thank me. Ride him." Riley smiled, and the smile reached his eyes. "Ride him the way he needs to be ridden. That's thanks enough."
 
 ---
 

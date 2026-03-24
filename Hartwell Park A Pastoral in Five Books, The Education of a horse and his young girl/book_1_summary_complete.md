@@ -117,8 +117,8 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
 
 ## SUPPORTING CHARACTERS (Established)
 
-### RILEY (Non-binary head groom)
-- **Background:** Born in female body, binds chest, wears men's clothing, uses masculine terms
+### RILEY (Head groom — born biologically female, lives as a man)
+- **Identity:** Born in a female body but lives fully as male. Binds chest, wears men's clothing, he/him pronouns throughout. The household accepts this as fact; outsiders see an eccentric woman. No 1813 language exists for this — it is shown, not labeled.
 - **Age/Appearance:** Sun-weathered face, startling blue eyes, battered hat, rough working clothes
 - **Skills:** "Finest horseman Rebecca has ever met"
 - **Personality:** Patient teacher, matter-of-fact, practical, no-nonsense but kind
@@ -126,7 +126,7 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
 - **Philosophy:** "Horses talk with their whole bodies if you learn to listen"
 - **Key Teaching:** Understanding trauma, listening to signals, controlling emotions first
 - **Relationship with Sage:** Deep friendship through shared labor, can be vulnerable together
-- **Background revealed:** Knows "a bit" about Sage's assault (Rebecca told them enough to understand)
+- **Background revealed:** Knows "a bit" about Sage's assault (Rebecca told him enough to understand)
 - **Notable dialogue:** "Sometimes the worst thing about trauma is how it makes you believe you deserved it"
 
 ### REBECCA HARTWELL (Sage's aunt, estate owner)
@@ -193,7 +193,7 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
   - Sheep pastures
 - **Staff:** Riley (head groom), Tom (village lad, helps with pitchfork work), Rebecca and Jennifer help with daily care
 - **Current Population:** 30 horses (number varies)
-- **Household Nature:** Unconventional - two women living as partners, non-binary head groom, methods considered eccentric/dangerous by neighbors
+- **Household Nature:** Unconventional - two women living as partners, head groom born female who lives as male, methods considered eccentric/dangerous by neighbors
 
 ### DAILY ROUTINE (Established)
 - **Morning feed:** 6:00 AM

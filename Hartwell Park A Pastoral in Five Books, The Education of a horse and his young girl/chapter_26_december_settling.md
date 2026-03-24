@@ -181,7 +181,7 @@ Sage considered. "Now I'm still watching, but it's different. I'm watching becau
 
 "You are." Jennifer's tone brooked no argument. "You've worked harder than anyone I've seen to rebuild yourself this year. You've helped rebuild Promise. You've become part of this household in ways that matter. Whatever grows between you and Riley, it's growing from solid ground."
 
-The front door opened, bringing a gust of cold air and Riley's familiar footsteps. They appeared in the parlor doorway, cheeks ruddy from the cold, bits of hay still clinging to his coat.
+The front door opened, bringing a gust of cold air and Riley's familiar footsteps. He appeared in the parlor doorway, cheeks ruddy from the cold, bits of hay still clinging to his coat.
 
 "Everyone's settled," he reported. "Promise was restless at first—kept looking over his door like he was waiting for something. Then I gave him a few minutes of scratching and he calmed right down. I think he just wanted company."
 

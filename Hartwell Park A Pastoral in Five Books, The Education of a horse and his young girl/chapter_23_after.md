@@ -21,7 +21,7 @@ Sage went. She didn't sleep. She lay in the dark and listened to the house settl
 
 Morning brought rain and the reality of injury.
 
-Riley woke stiff and grey-faced, unable to sit up without help. Sage was there before Jennifer — had been listening from the hallway for the first sounds of movement — and got an arm behind Riley's shoulders, easing them upright while Riley breathed through clenched teeth.
+Riley woke stiff and grey-faced, unable to sit up without help. Sage was there before Jennifer — had been listening from the hallway for the first sounds of movement — and got an arm behind Riley's shoulders, easing him upright while Riley breathed through clenched teeth.
 
 "I can manage," Riley said.
 
@@ -29,9 +29,9 @@ Riley woke stiff and grey-faced, unable to sit up without help. Sage was there b
 
 "I can manage *poorly*." The ghost of a smile, immediately extinguished by the cost of breathing too deep. "Help me stand?"
 
-Standing required both of Sage's arms and most of her strength. Riley's left arm hung in its sling, useless, and the cracked ribs made every movement a negotiation with pain. By the time Riley was upright, sweat darkened the collar of the shirt they'd slept in.
+Standing required both of Sage's arms and most of her strength. Riley's left arm hung in its sling, useless, and the cracked ribs made every movement a negotiation with pain. By the time Riley was upright, sweat darkened the collar of the shirt he'd slept in.
 
-"I need to—" Riley gestured vaguely toward the necessary. The flush that crept up their neck was mortifying in its helplessness.
+"I need to—" Riley gestured vaguely toward the necessary. The flush that crept up his neck was mortifying in its helplessness.
 
 "I'll walk you there and wait outside."
 
@@ -39,7 +39,7 @@ Standing required both of Sage's arms and most of her strength. Riley's left arm
 
 "If you fall, you'll crack the other ribs. I'm walking you there."
 
-Riley didn't argue further. They made it to the door and back with Sage's arm around their waist, and neither of them acknowledged the indignity because there was nothing to be done about it except endure.
+Riley didn't argue further. They made it to the door and back with Sage's arm around his waist, and neither of them acknowledged the indignity because there was nothing to be done about it except endure.
 
 This became the rhythm of the days that followed. Sage woke early, helped Riley sit, helped Riley stand, helped Riley to the necessary and back. She brought meals on a tray because Riley couldn't manage the stairs to the dining room — couldn't manage stairs at all for the first four days. She helped Riley change the bandages on the shoulder when Jennifer was busy with the afternoon rounds. She learned to read the particular set of Riley's jaw that meant the pain was bad but Riley wouldn't say so, and she learned to appear with Jennifer's tincture before Riley had to ask.
 
@@ -51,9 +51,9 @@ This became the rhythm of the days that followed. Sage woke early, helped Riley 
 
 "Jennifer has the horses, the household, Rebecca to manage. She can't sit with you all day." Sage set the tea tray down and poured, adding the honey Riley liked without being asked. "I'm here. Let me be here."
 
-Riley took the cup with their right hand, the only one that worked. Their fingers were still strong, still steady — it was the rest of them that had been broken.
+Riley took the cup with his right hand, the only one that worked. His fingers were still strong, still steady — it was the rest of him that had been broken.
 
-"How's Promise?" Riley asked. The question they asked every time Sage appeared, before anything else.
+"How's Promise?" Riley asked. The question he asked every time Sage appeared, before anything else.
 
 "The same." Sage sat on the opposite end of the window seat, pulling her feet up. "Rebecca went in this morning to check his water and he bolted to the far side. She had to back out and let him settle before she could fill the trough."
 
@@ -69,7 +69,7 @@ Riley set down the teacup very carefully. "He trusted us. We told him it was saf
 
 "I told him it was safe. I was the one at his head, telling him everything was fine, right up until it wasn't." Sage's voice cracked on the last word and she pressed her lips together, holding the rest in. She would not cry in front of Riley. Riley was the one who was hurt. Riley didn't need Sage's guilt on top of everything else.
 
-But Riley reached across the window seat with their good hand and found Sage's wrist. "Look at me."
+But Riley reached across the window seat with his good hand and found Sage's wrist. "Look at me."
 
 Sage looked.
 
@@ -83,7 +83,7 @@ The words hung in the rain-washed light.
 
 "But you were so careful. You did everything right—"
 
-"Doesn't matter. Every rider who ever sat on his back before us had their legs on both sides of him. Every rider who hurt him sat that way. His body remembers that position, and his body doesn't care whose legs they are." Riley paused, breathing carefully around the ribs. "When I was lying across him, belly-down, legs on one side — that was fine. The weight was different from anything he'd experienced before. New. Not threatening. But the moment I sat up, legs down, astride —" Riley shook their head. "I felt him leave. Not physically. Mentally. One second he was present, processing, managing. The next he was gone. Back in whatever place those men put him."
+"Doesn't matter. Every rider who ever sat on his back before us had their legs on both sides of him. Every rider who hurt him sat that way. His body remembers that position, and his body doesn't care whose legs they are." Riley paused, breathing carefully around the ribs. "When I was lying across him, belly-down, legs on one side — that was fine. The weight was different from anything he'd experienced before. New. Not threatening. But the moment I sat up, legs down, astride —" Riley shook his head. "I felt him leave. Not physically. Mentally. One second he was present, processing, managing. The next he was gone. Back in whatever place those men put him."
 
 Sage stared at Riley. "You could tell all that from the saddle?"
 
@@ -139,7 +139,7 @@ The weight of it settled on Sage's shoulders — not burden, exactly, but respon
 
 On the fourth day after the fall, Sage helped Riley downstairs for the first time.
 
-The stairs were an ordeal — each step jarring the cracked ribs, Riley's good hand white-knuckled on the banister, Sage one step below with her arm around Riley's waist, ready to catch. By the bottom, Riley was grey-faced and trembling, but they'd done it.
+The stairs were an ordeal — each step jarring the cracked ribs, Riley's good hand white-knuckled on the banister, Sage one step below with her arm around Riley's waist, ready to catch. By the bottom, Riley was grey-faced and trembling, but he'd done it.
 
 "Kitchen," Riley said through gritted teeth.
 
@@ -147,7 +147,7 @@ The stairs were an ordeal — each step jarring the cracked ribs, Riley's good h
 
 "Kitchen *is* the chair. The one by the fire. I've been dreaming about that chair for four days."
 
-Sage walked them to the armchair by the kitchen fire — the same one Riley had slept in that first terrible afternoon — and lowered them into it with as much care as she could manage. Riley sank back, eyes closed, and Sage watched the pain slowly ebb from their face as the fire's warmth reached them.
+Sage walked him to the armchair by the kitchen fire — the same one Riley had slept in that first terrible afternoon — and lowered him into it with as much care as she could manage. Riley sank back, eyes closed, and Sage watched the pain slowly ebb from his face as the fire's warmth reached him.
 
 "Better?" Sage asked.
 
@@ -199,7 +199,7 @@ Riley's thumb moved across her knuckles, back and forth, the smallest possible g
 
 "I'll be here."
 
-Riley's eyes closed. Within minutes their breathing evened out, deeper than it had been since the fall, and Sage sat on the stool beside the fire and held Riley's hand and didn't move.
+Riley's eyes closed. Within minutes his breathing evened out, deeper than it had been since the fall, and Sage sat on the stool beside the fire and held Riley's hand and didn't move.
 
 ---
 

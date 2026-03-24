@@ -478,7 +478,8 @@ Walks toward lit windows, toward Riley waiting in doorway, toward family she'd c
 - Age 20 at end of Book V; 23 in epilogue
 - Partnership with Sage declared and permanent
 - Continuing work at Hartwell alongside Sage
-- Jennifer's daughter, Rebecca's mentee—bridge between generations
+- Jennifer's son, Rebecca's mentee—bridge between generations
+- IDENTITY NOTE: Born biologically female, lives as male. He/him pronouns. Binds chest, wears men's clothing. The household treats this as fact; the outside world sees an unconventional woman.
 
 **Rebecca's Final State:**
 - Philosophy proven publicly

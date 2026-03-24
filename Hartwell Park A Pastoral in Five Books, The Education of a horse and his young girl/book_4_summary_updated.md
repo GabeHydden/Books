@@ -103,7 +103,7 @@ Sage's first real Christmas since father died and mother remarried. Before that,
 
 Morning: festive stable chores. Holly in barn aisles, red ribbons on halters. Promise suspicious of his ribbon, "expecting it to attack." Extra rations for all: additional grain, fresh apples, warm bran mash. Promise emerges from mash with bran on whiskers, enormously pleased.
 
-Private gift exchange (by garden wall, out of sight): Riley gives Sage rabbit-lined riding gloves—"I noticed your hands are always cold." Sage gives Riley hand-embroidered handkerchief with horse's head and initials, worked by candlelight over weeks. Riley tucks it over their heart: "I'll keep it always." Gentle forehead kiss. "Happy Christmas."
+Private gift exchange (by garden wall, out of sight): Riley gives Sage rabbit-lined riding gloves—"I noticed your hands are always cold." Sage gives Riley hand-embroidered handkerchief with horse's head and initials, worked by candlelight over weeks. Riley tucks it over his heart: "I'll keep it always." Gentle forehead kiss. "Happy Christmas."
 
 Kitchen: Sage asks Jennifer about her and Rebecca—how did they know? Jennifer: "I knew when I couldn't imagine my life without her in it." Fear vs. love: "Fear is a poor reason to give up the best thing in my life." Reassurance to Sage: "You're not earning your keep with your heart."
 
@@ -176,11 +176,12 @@ Evening: Fair only two months away now (first week of April). Jennifer's wisdom:
 - Fair approaching—becoming concrete
 
 **Riley's Character:**
-- Turned down three proposals pre-Sage
-- Gender-nonconforming presentation accepted at Hartwell
+- Born biologically female; binds chest, wears men's clothing, lives as a man. He/him pronouns throughout.
+- Turned down three proposals pre-Sage (suitors saw "a young woman," not the man he is)
+- Presentation accepted at Hartwell; navigated carefully in public
 - Values authenticity over social acceptance
 - Patient by nature and practice
-- "They" pronouns, dark hair escaping pins, practical clothing
+- Dark hair escaping pins, practical clothing
 
 **Continuity Notes:**
 - Belle = nervous filly, needs autumn not spring

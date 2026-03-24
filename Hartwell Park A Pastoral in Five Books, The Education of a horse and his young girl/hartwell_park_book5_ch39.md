@@ -58,7 +58,7 @@ Rebecca followed her, and Tom went to finish evening chores, leaving Sage and Ri
 
 "You said you wanted to talk," Riley said quietly. "About our future. What it might look like."
 
-Sage turned from Promise's stall. In the golden light, Riley looked tired and beautiful—dust on their shirt, hay in their hair, eyes warm with something that made Sage's chest ache.
+Sage turned from Promise's stall. In the golden light, Riley looked tired and beautiful—dust on his shirt, hay in his hair, eyes warm with something that made Sage's chest ache.
 
 "I did. I do." She took a breath. "Everything happened so fast at the fair. The competition, and Thornton, and Emma, and then the celebrating—there wasn't time to think about anything except the next moment."
 
@@ -74,7 +74,7 @@ Sage turned from Promise's stall. In the golden light, Riley looked tired and be
 
 "Yes." The word came out simple and sure. "This is where I want to be. Not because I have nowhere else to go, but because this is where I belong."
 
-Riley moved closer, close enough that Sage could feel the warmth of them in the cooling air. "I've been here my whole life, near enough. My mother brought me when I was four years old, and Rebecca..." Riley paused, something soft crossing their expression. "Rebecca became a second mother to me, especially after my father died. She taught me everything about horses, but more than that—she showed me what it meant to live by your convictions. To build a life that fits who you actually are, not who the world says you should be."
+Riley moved closer, close enough that Sage could feel the warmth of him in the cooling air. "I've been here my whole life, near enough. My mother brought me when I was four years old, and Rebecca..." Riley paused, something soft crossing his expression. "Rebecca became a second mother to me, especially after my father died. She taught me everything about horses, but more than that—she showed me what it meant to live by your convictions. To build a life that fits who you actually are, not who the world says you should be."
 
 "She did the same for me," Sage said. "In one year, what she did for you in sixteen."
 

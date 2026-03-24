@@ -111,7 +111,7 @@ Sage thought about Riley's gloves warm on her hands, the handkerchief tucked ove
 
 "I don't know what I'm asking. I don't know what any of this is, or what it could become, or whether I'm even—"
 
-"You don't have to know yet." Jennifer's hand covered hers, flour-dusted and warm. "You have time. You have a place here, regardless of what does or doesn't develop between you and my daughter. You're not on trial. You're not earning your keep with your heart."
+"You don't have to know yet." Jennifer's hand covered hers, flour-dusted and warm. "You have time. You have a place here, regardless of what does or doesn't develop between you and my son. You're not on trial. You're not earning your keep with your heart."
 
 The words loosened something tight in Sage's chest that she hadn't even known was there.
 
@@ -367,7 +367,7 @@ Outside, the churchyard had transformed into a social gathering. Families cluste
 
 "Fairfax!" Rebecca called, and Squire Fairfax turned with a smile.
 
-"Morrison! Merry Christmas." He approached with his wife Margaret and their son Thomas. "Mrs. Blackwood. Miss Riley. And Miss Sage—I hear congratulations are in order. Emma's been talking of nothing else since she saw Promise on the road."
+"Morrison! Merry Christmas." He approached with his wife Margaret and their son Thomas. "Mrs. Blackwood. Mr. Riley. And Miss Sage—I hear congratulations are in order. Emma's been talking of nothing else since she saw Promise on the road."
 
 "He performed admirably," Rebecca said — the assessment delivered the way she delivered all assessments, precise and factual, though Sage had learned by now to hear the pride underneath.
 

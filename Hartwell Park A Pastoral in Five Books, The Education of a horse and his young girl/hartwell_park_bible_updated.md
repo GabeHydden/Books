@@ -874,18 +874,19 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 
 ### RILEY BLACKWOOD
 **Age:** 19 at start, 20 by end
+**Identity:** Born biologically female. Binds his chest, wears men's clothing, and lives fully as a man. He/him pronouns used by the household and in narration. In 1813, there is no language for this — Riley is simply understood by the people who love him as a man, and by the outside world as an eccentric woman. Rebecca's introduction to Sage: "Riley was born in a female body, but he is not a woman in the way most understand the term. He binds his chest and wears men's clothing and lives as a man." The Squire addresses him as "Mr. Riley." Jennifer calls him "my son." This is not a secret within the household but is navigated carefully in public.
 **Physical Description:**
 - 5'6", athletic build
 - Dark brown hair, thick and wavy, refuses to stay in pins
 - Brown eyes
 - Tanned from outdoor work
 - Strong hands, callused from stable work
-- Usually in men's riding breeches and practical shirts
+- Usually in men's riding breeches and practical shirts; binds chest
 - Moves with physical confidence
 
 **Background:**
 - Born 1794, grew up at Hartwell Park
-- Father (physician Dr. Blackwood) died when she was 14
+- Father (physician Dr. Blackwood) died when he was 14
 - Trained in horses since childhood by Rebecca
 - Turned down three marriage proposals (ages 17, 18, 19)
 - Pursuing independent study of equine behavior
@@ -894,7 +895,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 **Personality:**
 - Patient but not passive
 - Excellent teacher - breaks down complex into simple
-- Confident in her skills without arrogance
+- Confident in his skills without arrogance
 - Dry wit, teasing sense of humor
 - Direct communicator
 - Deeply principled about animal welfare
@@ -908,7 +909,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 - Excellent at groundwork training
 
 **Character Arc:**
-- Begins: established in her life and choices, confident in independence
+- Begins: established in his life and choices, confident in independence
 - Book I-II: Teaching Sage, developing friendship through shared work
 - Book III: Quiet observations about pace, caring for Riley after the fall, deepening connection with Sage
 - Book IV: Friendship deepening to love through winter's quiet time
@@ -919,7 +920,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 - **Sage:** First student, then friend, then love—develops naturally through shared work and time
 - **Promise:** Respects his journey, helps with training, observant about his needs
 - **Rebecca:** Mentor, almost second mother, model of independent woman
-- **Jennifer:** Her actual mother, close relationship, source of wisdom about love
+- **Jennifer:** His actual mother, close relationship, source of wisdom about love
 
 **Speech Patterns:**
 - Clear, instructive when teaching
@@ -978,7 +979,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 **Relationships:**
 - **Jennifer:** Life partner, deepest love
 - **Sage:** Niece, student, heir to philosophy
-- **Riley:** Mentee, almost-daughter
+- **Riley:** Mentee, almost-son
 - **Thornton:** Old enemy, represents everything she opposes
 
 **Speech Patterns:**
@@ -1010,7 +1011,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 - Born 1770 to physician father
 - Trained in medicine alongside father
 - Married Dr. Blackwood 1792, widowed 1808
-- One daughter (Riley)
+- One child (Riley)
 - Met Rebecca through veterinary consultation (1798)
 - Became partners (romantic and business) gradually
 - Brings medical expertise to horse sanctuary
@@ -1032,7 +1033,7 @@ Prose narrative with rich dialogue, internal monologue, detailed physical descri
 
 **Relationships:**
 - **Rebecca:** Life partner, complement her strength
-- **Riley:** Devoted mother, respects independence
+- **Riley:** Devoted mother, respects his independence
 - **Sage:** Gentle support, medical care
 
 **Speech Patterns:**

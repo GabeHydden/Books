@@ -197,11 +197,11 @@ Riley's breath was hot against her neck. "I'm sorry."
 
 "Not now. We'll talk about everything later. Right now you're walking to the house and Jennifer is going to fix your shoulder and that is the only thing that matters."
 
-They reached the kitchen door. Jennifer had gone ahead to prepare — Sage could hear her clearing the long table, issuing instructions to the cook for hot water and clean cloths. Sage helped Riley through the door, guided them to the chair Jennifer indicated, and only then stepped back.
+They reached the kitchen door. Jennifer had gone ahead to prepare — Sage could hear her clearing the long table, issuing instructions to the cook for hot water and clean cloths. Sage helped Riley through the door, guided him to the chair Jennifer indicated, and only then stepped back.
 
-Riley sat hunched forward, right hand cradling the left arm, face the color of ash. Their shirt was torn at the shoulder seam and dirt streaked one side of their face. They looked diminished in a way Sage had never seen — Riley, who was always so capable, so steady, so certain in the saddle.
+Riley sat hunched forward, right hand cradling the left arm, face the color of ash. His shirt was torn at the shoulder seam and dirt streaked one side of his face. He looked diminished in a way Sage had never seen — Riley, who was always so capable, so steady, so certain in the saddle.
 
-"Stay with Riley," Jennifer told Sage. "I need to reduce this shoulder before the swelling gets worse. It will hurt. Hold Riley's right hand and don't let them move."
+"Stay with Riley," Jennifer told Sage. "I need to reduce this shoulder before the swelling gets worse. It will hurt. Hold Riley's right hand and don't let him move."
 
 Sage took Riley's right hand. Their eyes met, and in Riley's gaze Sage saw pain, yes — but also something else. Something that looked like the thing she herself had felt lying in the dirt after Thunder reared. The particular shame of a horseperson who has come off.
 
@@ -217,7 +217,7 @@ She didn't wait for three. The shoulder went back with a sound like a muffled po
 
 "Weeks. Perhaps a month."
 
-Riley closed their eyes.
+Riley closed his eyes.
 
 Sage still held Riley's hand. She realized she should let go. She didn't.
 
@@ -249,7 +249,7 @@ Sage gripped the rail until her knuckles ached.
 
 "Yes."
 
-"Riley said he didn't know them. Said Promise's trust was in me, not — and I told Riley it would be fine. That Promise knew Riley. That he'd be all right."
+"Riley said Promise didn't know him. Said Promise's trust was in me, not — and I told Riley it would be fine. That Promise knew Riley. That he'd be all right."
 
 "Yes."
 
@@ -285,7 +285,7 @@ Near dusk, Promise moved. Not toward Sage — toward his water bucket at the far
 
 It was the first voluntary movement he'd made in hours. Sage took it as the only kind of hope available.
 
-She stayed until full dark, until she couldn't see him anymore, until the cold drove her inside to the kitchen where Jennifer had left soup on the stove and Riley was still sleeping in the armchair by the fire with one arm strapped tight against their chest.
+She stayed until full dark, until she couldn't see him anymore, until the cold drove her inside to the kitchen where Jennifer had left soup on the stove and Riley was still sleeping in the armchair by the fire with one arm strapped tight against his chest.
 
 Sage sat on the floor beside Riley's chair, ate her soup, and listened to Riley breathe.
 

@@ -127,15 +127,15 @@ Rebecca set up a training course in the lower field—fences that started low an
 
 She fell. Of course she fell. The first time was on the third day, when Promise took a fence bigger than she expected and she came off his shoulder, landing hard in the soft dirt of the arena. She lay there for a moment, wind knocked out of her, staring at the winter sky.
 
-Riley was there before she could move, dropping to their knees beside her. "Sage—"
+Riley was there before she could move, dropping to his knees beside her. "Sage—"
 
 "I'm fine." She wasn't sure if it was true, but she said it anyway, pushing herself up. Her hip ached. Her pride ached more. "I'm fine. Help me up."
 
 "You should rest—"
 
-"I should get back on." Sage accepted Riley's hand, letting them pull her to her feet. Promise had stopped a few lengths away, looking back at her with worried ears. "He needs to see that falling doesn't mean stopping. That's what Rebecca taught him. That's what she taught me."
+"I should get back on." Sage accepted Riley's hand, letting him pull her to her feet. Promise had stopped a few lengths away, looking back at her with worried ears. "He needs to see that falling doesn't mean stopping. That's what Rebecca taught him. That's what she taught me."
 
-Riley's face was tight with concern, but they didn't argue. They helped Sage back into the saddle and stepped back, watching as she gathered her reins and turned Promise back toward the fence.
+Riley's face was tight with concern, but he didn't argue. He helped Sage back into the saddle and stepped back, watching as she gathered her reins and turned Promise back toward the fence.
 
 This time, she stayed on.
 
@@ -151,21 +151,21 @@ Sage would return to the house exhausted, muscles screaming, and sit in the parl
 
 "You don't owe him your safety."
 
-"It's not about owing." Sage turned to look at Riley, at the worry etched into their face. "It's about... when I came here, I didn't believe I was worth anything. I was broken. Used up. Damaged beyond repair—just like everyone said about Promise." She reached for Riley's hand. "He proved them wrong about himself. Now I have to prove them wrong about me."
+"It's not about owing." Sage turned to look at Riley, at the worry etched into his face. "It's about... when I came here, I didn't believe I was worth anything. I was broken. Used up. Damaged beyond repair—just like everyone said about Promise." She reached for Riley's hand. "He proved them wrong about himself. Now I have to prove them wrong about me."
 
 "You already have. You don't need a horse race to prove your worth."
 
 "Maybe not to you. Maybe not to the people here." Sage squeezed Riley's fingers. "But I need to prove it to myself. I need to know that I can be brave when it matters. That I can rise to something instead of shrinking from it."
 
-Riley was quiet for a moment. Then they lifted Sage's hand to their lips and pressed a kiss to her knuckles.
+Riley was quiet for a moment. Then he lifted Sage's hand to his lips and pressed a kiss to her knuckles.
 
-"Then I'll be there," they said. "At the fair. Cheering louder than anyone. And if you fall, I'll be the first one over the fence to help you up."
+"Then I'll be there," he said. "At the fair. Cheering louder than anyone. And if you fall, I'll be the first one over the fence to help you up."
 
 "I won't fall."
 
 "I know. But if you do."
 
-Sage leaned into Riley's shoulder, letting their warmth seep into her aching body. "If I do, you can say you told me so."
+Sage leaned into Riley's shoulder, letting his warmth seep into her aching body. "If I do, you can say you told me so."
 
 "I would never." Riley's arm came around her, pulling her close. "I would just help you back on and tell you to try again. That's what we do here, isn't it? We try again."
 
@@ -209,9 +209,9 @@ A soft knock came at her door.
 
 Sage pushed herself up. "Yes."
 
-Riley slipped through the door, closing it softly behind them. They were in their nightclothes, a shawl wrapped around their shoulders against the February chill.
+Riley slipped through the door, closing it softly behind him. He was in his nightclothes, a shawl wrapped around his shoulders against the February chill.
 
-"I couldn't sleep either," they admitted, settling on the edge of Sage's bed. "I keep thinking about the fair."
+"I couldn't sleep either," he admitted, settling on the edge of Sage's bed. "I keep thinking about the fair."
 
 "Me too."
 
@@ -227,7 +227,7 @@ Sage considered lying. Decided against it. "Terrified."
 
 "You don't know that."
 
-"No. But I believe it." Riley shifted closer, their warmth a comfort against the cold night. "I believe in you. Promise believes in you. Rebecca believes in you. At some point, you're going to have to believe in yourself."
+"No. But I believe it." Riley shifted closer, his warmth a comfort against the cold night. "I believe in you. Promise believes in you. Rebecca believes in you. At some point, you're going to have to believe in yourself."
 
 Sage felt tears prick at her eyes. "What if I can't?"
 
@@ -241,7 +241,7 @@ They sat together in the darkness, hands clasped, breathing in sync. Outside, th
 
 "Stay," she said quietly. "Not... just stay. I don't want to be alone tonight."
 
-Riley didn't hesitate. They pulled back the covers and slid in beside her, their bodies fitting together like pieces of a puzzle. Sage felt the steady rhythm of Riley's heartbeat against her back, the warmth of their breath on her neck.
+Riley didn't hesitate. He pulled back the covers and slid in beside her, their bodies fitting together like pieces of a puzzle. Sage felt the steady rhythm of Riley's heartbeat against her back, the warmth of his breath on her neck.
 
 "Whatever happens," Riley whispered, "I'm proud of you."
 

@@ -64,7 +64,7 @@ Two sales before midday. Rebecca was pleased—Sage could see it in the set of h
 
 It was Riley who mentioned Promise.
 
-"You could flash him," they said, as the three of them walked back toward the Crown Inn. "Not to sell—just to show what he can do. Generate interest for the stud inquiries."
+"You could flash him," he said, as the three of them walked back toward the Crown Inn. "Not to sell—just to show what he can do. Generate interest for the stud inquiries."
 
 Sage considered it. Promise would be magnificent on the flashing lane, his black coat gleaming, his Arab-influenced head turning every eye. The trot that had taken months to unlock, floating and free, would draw gasps from the crowd. People would remember him.
 

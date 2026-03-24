@@ -25,7 +25,7 @@ They'd been working the nervous gelding steadily through the winter, building hi
 
 "That's the goal, isn't it? Replace fear with trust." Riley's shoulder brushed against hers as they stood together. "Same as with Promise. Same as with..."
 
-They didn't finish the sentence, but Sage heard the unspoken words anyway. *Same as with you.*
+He didn't finish the sentence, but Sage heard the unspoken words anyway. *Same as with you.*
 
 "Can I ask you something?" Sage said.
 
@@ -135,6 +135,6 @@ Two months. It seemed both impossibly soon and infinitely far away. So much had 
 
 "Not at all." Jennifer smiled. "That's how all the best things feel. The things worth doing are always a little frightening."
 
-"Love is like that," Riley said quietly, and their eyes met Sage's across the room. "Frightening and exciting and absolutely worth it."
+"Love is like that," Riley said quietly, and his eyes met Sage's across the room. "Frightening and exciting and absolutely worth it."
 
 Rebecca looked between them, a knowing expression crossing her face. "Well. It seems January hasn't been entirely about darkness after all."

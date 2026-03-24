@@ -76,7 +76,7 @@ The table went quiet. Riley's hand found Sage's under the tablecloth.
 
 "Not exactly." Rebecca looked at Riley. "He said the offer stands, if we ever change our minds. But he also said he respects our decision to keep him."
 
-Riley let out a breath Sage hadn't realized she'd been holding. "We're keeping him?"
+Riley let out a breath Sage hadn't realized he'd been holding. "We're keeping him?"
 
 "We're keeping him." Rebecca's voice was firm. "Thunder has been with us for six years. He's taught Sage to be brave, he's carried you through more miles than I can count, and he's part of this family." She reached for her wine glass again. "Two hundred guineas is a great deal of money. But some things aren't for sale."
 

@@ -161,7 +161,7 @@ Sage found Riley in the tack room that afternoon, cleaning bridles with the meth
 
 "Are you excited? I'm excited. I know I shouldn't be—I should be measured and cautious and all the things Rebecca would want. But Riley, he's going to be *backed*. After everything he's been through. After everything we've—"
 
-"Sage." Riley's voice was quiet enough to stop her. They set down the bridle and looked at her. "He doesn't know me."
+"Sage." Riley's voice was quiet enough to stop her. He set down the bridle and looked at her. "He doesn't know me."
 
 "Of course he does. You've worked with him for months. He's comfortable with you."
 
