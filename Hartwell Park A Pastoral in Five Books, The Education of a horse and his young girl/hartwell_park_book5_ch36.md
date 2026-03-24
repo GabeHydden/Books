@@ -12,15 +12,15 @@ Sage stood at the edge of the course, her hands cold despite the May sunshine, a
 
 Sage didn't answer. Around them, the crowd was gathering—perhaps two hundred people, more than had attended the ladies' exhibition. Word had spread about the black stallion from Hartwell, the one who'd shown so beautifully in the ring. Now they wanted to see if he could move.
 
-Rebecca appeared at her elbow. "The order's been set. You're fifth of eight. That gives you time to warm up properly."
+Rebecca appeared at her elbow, a folded programme in her hand with notes pencilled in the margins. "The order's been set. You're fifth of eight. That gives you time to warm up properly."
 
 "Who else is riding?"
 
-"Lord Ashford's hunter is first. A few I don't recognize in the middle places. Lady Catherine Thornton is seventh." Rebecca paused. "And her father's been talking to people. I've heard him in the crowd."
+"Lord Ashford's hunter is first. A few I don't recognize in the middle places. Lady Catherine Thornton is seventh." Rebecca laid it out in order, each competitor accounted for, the way she laid out everything — sequential, complete, the full picture before the assessment. She paused. "And her father's been talking to people. I've heard him in the crowd."
 
 Sage's stomach tightened. "What's he saying?"
 
-"The usual. That Promise is dangerous. That we're fools for trusting him." Rebecca's hand found Sage's shoulder, firm and grounding. "Let him talk. The best answer is what Promise does in that ring."
+"The usual. That Promise is dangerous. That we're fools for trusting him." Rebecca's hand found Sage's shoulder — placed there deliberately, the way she placed everything, a gesture that cost her visible effort but was offered anyway. "Let him talk. The best answer is what Promise does in that ring."
 
 ---
 
@@ -92,7 +92,7 @@ Lady Catherine trotted out to genuine applause—she'd gone fast, she'd gone cle
 
 Sage felt sick.
 
-"That's how Thornton trains," Rebecca said quietly, appearing at her elbow. "That's what Promise came from. And that's what you saved him from."
+"That's how Thornton trains," Rebecca said quietly, appearing at her elbow. Her voice had gone flat and precise — the register it shifted into when she was observing something that offended her understanding of horses, all feeling pressed down beneath accuracy. "That's what Promise came from. And that's what you saved him from."
 
 The eighth and final rider was almost an afterthought—a young gentleman on a rangy chestnut who knocked three rails and refused the water tray twice before getting over it. The crowd had already begun to murmur among themselves, and Sage heard snatches of conversation: *the black stallion... did you see him jump?... who's the girl?... faster than Lady Catherine...*
 

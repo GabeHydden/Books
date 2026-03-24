@@ -172,15 +172,17 @@ They were teaching each other. Both of them. Both learning the same lesson from 
 
 What came next, Rebecca explained over tea in the kitchen, was patience. Still patience. Always patience.
 
-"It's a remarkable breakthrough," Rebecca said, her eyes warm with genuine pride. "Three weeks is fast for a horse as traumatized as Promise. But it's just the beginning, Sage. One touch doesn't mean he's healed. It means he's opened a door. Now you have to honor that by not pushing through it too fast."
+She laid it out the way she always did — methodically, each point building on the last, her hands flat on the table, eyes holding Sage's with that slightly too-direct gaze that had unsettled Sage at first but now felt like being taken seriously.
+
+"It's a remarkable breakthrough. Three weeks is fast for a horse as traumatized as Promise. But it's just the beginning, Sage. One touch doesn't mean he's healed. It means he's opened a door. Now you have to honor that by not pushing through it too fast."
 
 "I won't," Sage said immediately. "I wouldn't. This has to be his choice. All of it."
 
-"Good." Rebecca poured more tea. "What we can start now is food reward. Positive association with your presence. Apples work well—most horses love them. You sit in your usual spot, and when he comes close, you offer an apple on your flat palm. Let him take it. Then you sit back. Don't ask for more. Just reward the choice he made to come close."
+"Good." Rebecca poured more tea — precise stream, no wasted drop, the pot set back in exactly the same spot on the tray. "What we can start now is food reward. Positive association with your presence. Apples work well — most horses love them. You sit in your usual spot, and when he comes close, you offer an apple on your flat palm. Let him take it. Then you sit back. Don't ask for more. Just reward the choice he made to come close."
 
 "How often?"
 
-"Every time he comes to the fence during your sitting sessions. Eventually you can ask him to come by holding up the apple. But for now, let him approach on his own and reward him when he does." Rebecca's expression grew more serious. "And Sage? This is going to be slow. He might not touch you again for days. Might regress. Might have bad days where he stays in the corner again. That's normal. Healing isn't linear."
+"Every time he comes to the fence during your sitting sessions. Eventually you can ask him to come by holding up the apple. But for now, let him approach on his own and reward him when he does." Rebecca's expression grew more serious. "And Sage? This is going to be slow. He might not touch you again for days. Might regress. Might have bad days where he stays in the corner again. That's normal. Healing isn't linear." She delivered this — the hard part, the part that might hurt — with the same even tone as the practical instructions. Not unkindly. Just completely.
 
 Sage thought of her own healing. The days when she could eat breakfast with the household and feel almost normal. The days when she woke from nightmares about Mr. Pemberton's hands and couldn't leave her room until noon. The way her progress looked from the outside like it had been steady, but felt from the inside like three steps forward, two steps back, another step forward, one step sideways.
 
@@ -218,7 +220,7 @@ That evening, after supper, Rebecca asked Sage to walk with her around the prope
 
 "I haven't done anything. I just sit there."
 
-"That's precisely what you've done, and it's everything. Most people can't tolerate that much patience. Can't sit with uncertainty that long. Can't honor another creature's pace when they're so desperate for progress they can measure." Rebecca paused by a fence, looking out over the grazing horses. "You've given Promise what he needed most: time. Space. Choice. Those are the greatest gifts you can give any traumatized creature."
+"That's precisely what you've done, and it's everything. Most people can't tolerate that much patience. Can't sit with uncertainty that long. Can't honor another creature's pace when they're so desperate for progress they can measure." Rebecca stopped at a fence, her hands going to the top rail — not leaning, but placed there deliberately, like a navigator taking a bearing. Her body angled toward the grazing horses the way it always did, as though they were the fixed point around which everything else oriented. "You've given Promise what he needed most: time. Space. Choice. Those are the greatest gifts you can give any traumatized creature."
 
 Sage thought about the gifts Rebecca had given her. The bedroom with morning light. The household that refused to follow society's script. The time to heal without demands or deadlines. The space to discover who she was when she wasn't performing for anyone.
 
@@ -243,6 +245,24 @@ They reached the paddock where Promise grazed in the evening light. He raised hi
 "You both have." Rebecca's voice was warm. "Three weeks ago you couldn't sit at our supper table. Now you're mucking stalls and riding horses and defining trust in ways that would make philosophers weep. That's no small thing, Sage. That's transformation."
 
 Sage watched Promise watching her. Two creatures who'd been broken by men who believed in domination. Two creatures learning, slowly and carefully, that gentleness might be possible. That choice might be honored. That healing, while not linear and never complete, could still be real.
+
+They walked back in comfortable silence. Rebecca went straight to her study — Sage could hear the familiar sounds of the desk drawer opening, the ledger being set out, the routine of evening record-keeping that seemed to settle Rebecca the way grooming settled a horse.
+
+Jennifer was in the kitchen, warming milk on the stove. She looked up when Sage came in, studied her face, and smiled.
+
+"Sit with me a moment?"
+
+Sage sat. Jennifer set a cup in front of her and took the opposite chair.
+
+"She's proud of you," Jennifer said. "Rebecca. Enormously proud. She may not have said it quite that way."
+
+"She said I'd given Promise time and space and choice."
+
+"That's her way of saying she's proud." Jennifer wrapped both hands around her own cup. "Rebecca has always understood horses better than people. She reads a horse at thirty paces — sees things the rest of us miss entirely. But human feelings..." She shook her head, fond rather than critical. "She feels them. Deeply. She just hasn't the faintest idea how to show it without a horse in the room."
+
+"She showed me plenty tonight."
+
+"Good. She's learning too." Jennifer's eyes were warm. "We all are."
 
 Tomorrow she would bring an apple. Would sit in her spot and read her book and offer the choice without demanding he take it. And the day after. And the day after.
 

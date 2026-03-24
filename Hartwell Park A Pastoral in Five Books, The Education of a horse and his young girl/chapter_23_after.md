@@ -233,7 +233,7 @@ Sage sat on the stool and pressed her face into her hands, and this time she did
 
 Rebecca started the new protocol the following week.
 
-One session per day. Fifteen minutes maximum. Sage as the primary handler — not Rebecca, not Riley, just Sage. Rebuilding from the ground: halter work, leading, touch. No surcingle. No saddle. Nothing that reminded him of what had happened.
+She laid it out at the kitchen table with her hands flat on the wood, the way she always laid out plans — numbered, sequential, no room for ambiguity. One session per day. Fifteen minutes maximum. Sage as the primary handler — not Rebecca, not Riley, just Sage. Rebuilding from the ground: halter work, leading, touch. No surcingle. No saddle. Nothing that reminded him of what had happened.
 
 "We go at his pace," Rebecca said. "Not ours. And this time we mean it."
 

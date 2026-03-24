@@ -8,7 +8,7 @@ Sage could feel the crowd's attention—two hundred people holding their breath,
 
 "Survival." Thornton laughed, the sound harsh in the silence. "Is that what you call it when a horse breaks a man's arm? When he kicks someone so hard they can't breathe?" He turned to the crowd, playing to them. "This girl wants you to believe that a thousand pounds of muscle and bone was just *frightened*. That all those injuries were simply... misunderstandings."
 
-"They were," Rebecca said, stepping forward. Her voice carried the quiet authority that Sage had come to recognize—the voice that calmed nervous horses and steadied frightened people. "I've worked with difficult horses for twenty years, Mr. Thornton. I know the difference between a vicious animal and a traumatized one. Promise was never vicious. He was defending himself against treatment that would make any creature desperate."
+"They were," Rebecca said, stepping forward. Her voice carried a quality Sage had heard before — not the stiff, effortful tone she used in drawing rooms and at dinner tables, but the voice she used with horses and about horses: fluid, certain, every word landing exactly where she intended it. This was Rebecca in her native language. "I've worked with difficult horses for twenty years, Mr. Thornton. I know the difference between a vicious animal and a traumatized one. Promise was never vicious. He was defending himself against treatment that would make any creature desperate."
 
 "Treatment." Thornton's face flushed darker. "You mean training. The same training my family has used for three generations—"
 
@@ -46,7 +46,7 @@ He remembered her. Sage could feel it in the subtle shift of his weight, the way
 
 "Mrs. Morrison." The Squire's voice was strained. "I need to hear it from you. If my daughter gets on that horse—"
 
-"She'll be safe." Rebecca stepped closer, her voice low and intense. "I've worked with that animal for nearly a year. I know what he's capable of—good and bad. And I believe, with everything I am, that he would sooner hurt himself than harm a child."
+"She'll be safe." Rebecca stepped closer, and her eyes found the Squire's with that too-direct focus — the one that unsettled people who didn't know her, but that Sage had learned to recognise as her form of absolute sincerity. "I've worked with that animal for nearly a year. I know what he's capable of — good and bad. And I believe, with everything I am, that he would sooner hurt himself than harm a child."
 
 "You believe." The Squire's laugh was hollow. "Belief isn't certainty."
 
@@ -182,7 +182,7 @@ Sage couldn't speak. Her throat had closed up, her eyes were burning, and all sh
 
 The applause started slowly—a few people at first, then more, then a wave of sound that swept through the crowd. Not polite applause this time. Real appreciation. Real respect. A twelve-year-old girl had just ridden a "vicious" stallion around a ring, and the horse had treated her like spun glass.
 
-Rebecca was there, helping Emma dismount, her face transformed by a smile Sage had rarely seen. The Squire was there too, catching his daughter in an embrace that lifted her off her feet.
+Rebecca was there, helping Emma dismount, her face transformed by a smile that broke through all her usual restraint — wide and unguarded and lasting longer than her smiles ever did, as though for once her face knew exactly what to do with what she was feeling. The Squire was there too, catching his daughter in an embrace that lifted her off her feet.
 
 "You mad, brilliant, impossible child," he said, his voice rough. "Don't you ever frighten me like that again."
 
@@ -192,7 +192,7 @@ Sage turned to look at Thornton.
 
 He stood at the edge of the crowd, his face pale, his arms hanging at his sides. The triumph was gone. The certainty was gone. All that remained was a man watching his worldview crumble—watching the horse he'd called vicious carry a child as tenderly as a mother carrying an infant.
 
-"Mr. Thornton," Rebecca said, her voice carrying clearly in the sudden quiet. "I believe you promised that if someone rode Promise safely, you would admit you were wrong."
+"Mr. Thornton," Rebecca said, and her voice carried clearly in the sudden quiet — precise, unhurried, each word placed with the same deliberate care she gave to everything. "I believe you promised that if someone rode Promise safely, you would admit you were wrong."
 
 Thornton's jaw worked. His hands clenched into fists at his sides.
 

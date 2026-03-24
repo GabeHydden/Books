@@ -91,7 +91,7 @@ But he didn't do anything. Didn't pin his ears or nip or try to drive Clover any
 
 "Good boy," Sage murmured, scratching his withers.
 
-Rebecca had noticed too, walking Marcus in a small circle to keep the young horse from getting antsy. "He's learning to manage himself," she observed. "That's important. A stallion who can be trusted around mares without making a scene—that's valuable."
+Rebecca had noticed too — of course she had, she noticed everything about horses even while managing Marcus through a small circle to keep the young gelding from getting antsy. Her eyes had tracked the interaction with that quality of attention she gave to behavior, cataloguing it the way she catalogued everything. "He's learning to manage himself," she observed. "That's important. A stallion who can be trusted around mares without making a scene—that's valuable."
 
 "Is that part of why you brought him out with Clover today?"
 

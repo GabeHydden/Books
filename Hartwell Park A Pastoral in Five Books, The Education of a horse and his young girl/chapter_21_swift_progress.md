@@ -49,7 +49,7 @@ Promise accepted the bit on his third session—mouthing it uncertainly at first
 
 Rebecca started long-lining him—driving from behind with two long reins attached to the bit, teaching him the feel of rein aids that would someday come from a rider's hands. Promise picked it up quickly, his intelligence evident in how fast he connected the new sensations to actions he already knew.
 
-"He wants to learn," Rebecca observed one afternoon as they watched Promise circle the round pen at a steady trot, responding to her voice commands relayed through the long lines. "Some horses just tolerate training. Promise is actively trying to understand."
+"He wants to learn," Rebecca observed one afternoon. She stood at the center of the round pen with the long lines feeding through her fingers, her body oriented toward Promise with that absolute attention she gave to horses — reading every twitch of ear, every shift of weight, the way another person might read a face across a dinner table. "Some horses just tolerate training. Promise is actively trying to understand."
 
 "He always was smart," Sage said. "Even when he was terrified. You could see him thinking."
 
@@ -89,7 +89,7 @@ But somehow, in the rush of the next few days, she didn't. There was always some
 
 He was wearing a surcingle now—the broad band around his middle that would accustom him to girth pressure before the saddle came. He barely reacted when Rebecca tightened it, just shifted his weight slightly and continued his long-lining as if nothing had changed.
 
-"I've never seen a horse with his history adapt this quickly," Rebecca said one evening as they turned out the barn lamps. "It's like he was waiting for permission to trust."
+"I've never seen a horse with his history adapt this quickly," Rebecca said one evening as they turned out the barn lamps. She moved down the aisle checking each stall — the same order every night, the same glance through each grille, the same hand testing each latch. "It's like he was waiting for permission to trust."
 
 "Maybe he was," Sage said. "Maybe all those months of watching, learning—maybe he was just building up the courage."
 

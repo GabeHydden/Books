@@ -78,7 +78,7 @@ It felt remarkable. Felt like proof that the foundation she'd built all summer�
 
 Two weeks into sidesaddle training, Rebecca appeared in the stable yard while Sage was grooming Thunder after another jumping session—raised poles now, small crossrails, nothing dramatic but enough to require real riding.
 
-"The Ashworth hunt meets next Saturday," Rebecca said without preamble. "It's the August meet—informal, just a few hours in the morning before the heat gets too bad. I'm riding Whisper. You're riding Thunder. We're going to show them that Hartwell Park's methods produce horses and riders who can hold their own."
+"The Ashworth hunt meets next Saturday," Rebecca said without preamble. She had the look she got when she'd been planning — eyes focused somewhere past the conversation, hands flat against her thighs, every detail already arranged in her mind before she opened her mouth. "It's the August meet—informal, just a few hours in the morning before the heat gets too bad. I'm riding Whisper. You're riding Thunder. We're going to show them that Hartwell Park's methods produce horses and riders who can hold their own."
 
 Sage's hands stilled on Thunder's neck. "The hunt?"
 
@@ -106,7 +106,7 @@ The habit transformed her. Sage barely recognized the woman in the mirror—stra
 
 She looked like someone who belonged in society. Like someone who could ride out with the local hunt and not embarrass herself or Hartwell Park.
 
-"You'll do beautifully," Jennifer said softly. "Rebecca is proud of you, even if she doesn't say it often. What you've learned in five months—most people don't accomplish in years."
+"You'll do beautifully," Jennifer said softly. "Rebecca is proud of you. Enormously." She smoothed a wrinkle from the jacket's shoulder, the gesture both practical and tender. "She won't have said it quite that way. She'll have said you're progressing well, or that your seat has improved, or something about Thunder's conditioning. But what she means is she's proud. I've been translating for fifteen years — I'm quite reliable on this point."
 
 ***
 
@@ -146,7 +146,7 @@ Something flickered in Lord Ashworth's expression—surprise at her honesty, per
 
 He rode off, and Sage glanced at Rebecca. "That could have been worse."
 
-"Wait until we're actually riding. They'll be watching for mistakes, for evidence that our methods produce inferior horses." Rebecca's jaw was set. "We'll give them no such evidence."
+"Wait until we're actually riding. They'll be watching for mistakes, for evidence that our methods produce inferior horses." Rebecca's jaw was set, her body rigid in the way it went when she was among people she couldn't read — still and precise where another woman might have been gracious and warm. "We'll give them no such evidence."
 
 ***
 
@@ -184,11 +184,11 @@ Rebecca inclined her head. "Perhaps there is."
 
 They rode back to Hartwell Park in comfortable silence, both women exhausted, both aware of what they'd accomplished. The sun was higher now, burning off the morning mist, promising another hot afternoon. Thunder and Whisper walked on loose reins, relaxed after their work.
 
-"You did well," Rebecca said finally. "Very well. You represented Hartwell Park exactly as I'd hoped."
+"You did well," Rebecca said finally. The praise came out measured, factual — the same tone she used to assess a horse's movement, noting what was correct. "Very well. You represented Hartwell Park exactly as I'd hoped."
 
 "Thunder did most of the work."
 
-"You've learned to give credit to the horse. That's good. But you earned your place out there today. Five months ago you couldn't post a trot on Clover. Today you jumped a hunt course sidesaddle on Thunder in front of the local gentry. That's extraordinary progress."
+"You've learned to give credit to the horse. That's good. But you earned your place out there today." She counted it off the way she counted training milestones. "Five months ago you couldn't post a trot on Clover. Today you jumped a hunt course sidesaddle on Thunder in front of the local gentry. That's extraordinary progress."
 
 Sage thought about that progress—the falls and the getting back on, the patient building of skills, the slow understanding of how to communicate with horses. Thought about Promise, still working in the round pen, still months away from accepting a halter, still learning to trust that humans could be kind.
 

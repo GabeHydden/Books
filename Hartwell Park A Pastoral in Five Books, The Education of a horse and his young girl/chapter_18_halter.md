@@ -19,7 +19,7 @@ But the old-fear whispers: *they always say calm before the hurt-comes.*
 
 He doesn't move-away though. This is progress-he-knows. The watching-learning from seeing small-human fall and not-be-punished, from seeing light-happy-mare choose her work with joy-expression, from understanding both-students-learning-together—all of this makes him stand-and-wait instead of flee-immediately.
 
-Tall-calm-human stops at comfortable-distance. Not too-close. She's learned his space-needs, learned where his body says *this-is-safe* and where it screams *too-near-danger.* 
+Tall-calm-human stops at comfortable-distance. Not too-close. She always stops at the same-exact-place, same distance-measured, as though her body has a rule about where to stand. He likes this about her. Predictable-always. Same-every-time. She's learned his space-needs, learned where his body says *this-is-safe* and where it screams *too-near-danger.*
 
 She holds up the thing.
 

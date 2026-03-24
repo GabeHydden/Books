@@ -16,7 +16,7 @@ The household was stirring when she crossed the yard to the house. Kitchen light
 
 Jennifer's expression softened. "Eat something. It's a long journey, and you'll need your strength."
 
-Sage wasn't hungry—her stomach was a knot of nerves—but she forced down bread and butter while the sky lightened outside. Rebecca appeared in riding clothes, her manner brisk and focused. Riley came in from the barn smelling of hay and horses.
+Sage wasn't hungry—her stomach was a knot of nerves—but she forced down bread and butter while the sky lightened outside. Rebecca appeared in riding clothes, already consulting a folded sheet of paper — the travel schedule she'd drawn up the night before, each stage of the journey timed and noted in her small precise hand. Riley came in from the barn smelling of hay and horses.
 
 "Thunder and Marcus are eating. Oliver's already finished—he's always been an early riser." Riley's hand found Sage's shoulder, squeezed once. "Promise?"
 
@@ -40,7 +40,7 @@ Now he stood trembling but still, because she was here, and she had never lied t
 
 It took three attempts. The first time, he got his front hooves on the ramp and backed off, whites of his eyes showing. The second time, he made it halfway before a noise from inside—Marcus stamping nervously—sent him scrambling backward. Sage's arms ached from holding the lead rope steady without pulling, without forcing.
 
-The third time, Rebecca came to stand at the wagon's far end, holding an apple. She didn't call him or coax him. Just stood there, presence steady and patient, the apple visible in her palm.
+The third time, Rebecca came to stand at the wagon's far end, holding an apple. She positioned herself at the exact centre of the ramp's sightline — deliberate, measured, the way she positioned herself for everything — and waited. She didn't call him or coax him. Just stood there, presence steady and patient, the apple visible in her palm.
 
 Promise's ears swiveled toward her. He knew Rebecca—her steady presence, her calm authority. He had never once been hurt by her hands. And he knew apples.
 
@@ -90,7 +90,7 @@ Rebecca directed the carriage toward the Crown Inn, one of the few establishment
 
 "Wait here," Rebecca said, and disappeared into the chaos.
 
-She emerged ten minutes later, looking satisfied. "One stall. Last one available—I had to pay double the usual rate. But Promise will have proper shelter, and separation from the mare lines."
+She emerged ten minutes later, looking satisfied — the particular satisfaction she showed when a logistical problem had been solved to her specifications. "One stall. Last one available — I had to pay double the usual rate. But Promise will have proper shelter, and separation from the mare lines."
 
 "Marcus and Oliver?"
 

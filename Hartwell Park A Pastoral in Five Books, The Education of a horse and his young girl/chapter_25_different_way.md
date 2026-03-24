@@ -133,7 +133,7 @@ This was what he needed. This was how they could be partners.
 
 "I'll do whatever it takes."
 
-"I know you will." Rebecca paused. "I have to admit — in thirty years of training, I've never used sidesaddle as a solution for a traumatized horse. I didn't think of it. You did."
+"I know you will." Rebecca paused. "I have to admit—" Rebecca paused, and the pause had the quality of someone who found admitting surprise more difficult than admitting error. "In thirty years of training, I've never used sidesaddle as a solution for a traumatized horse. I didn't think of it. You did."
 
 "Riley pointed me toward it." Sage glanced at the armchair by the fire, where Riley sat reading, and felt something warm move through her chest. "Asked me if riding always meant legs on both sides. The answer seemed obvious until I actually thought about it."
 

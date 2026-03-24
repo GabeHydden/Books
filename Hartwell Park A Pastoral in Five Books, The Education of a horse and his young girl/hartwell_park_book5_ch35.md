@@ -124,7 +124,7 @@ They warmed up in a quiet corner behind the exhibition area—walking, trotting,
 
 "That's true of everything. That's true of life." Riley moved closer, one hand finding Sage's knee where it hooked over the pommel. "But you've done the work. Both of you. Whatever happens in that ring, you've already proven what matters."
 
-Rebecca appeared at the entrance to the warm-up area. "They're ready for you. Four horses before you, then your turn." Her gaze swept over Promise, assessing. "He looks well. Calm."
+Rebecca appeared at the entrance to the warm-up area. "They're ready for you. Four horses before you, then your turn." Her gaze swept over Promise, assessing. "He looks well. Calm." Her gaze tracked over Promise with that focused, cataloguing attention — checking his eye, his ear set, the tension in his neck, reading the horse the way she read every horse, completely and automatically, before she registered anything else about the scene.
 
 "He's trying," Sage said. "We both are."
 
@@ -152,7 +152,7 @@ She brought him down to walk, then halt, in the center of the ring. He stood squ
 
 Sage allowed herself a small smile. She reached down to pat Promise's neck, feeling the warmth of him beneath her gloved hand. They'd done it. The first test, passed.
 
-As she rode out of the ring, she passed close to where Rebecca stood with Jennifer and Riley. Rebecca's face was carefully neutral, but her eyes were bright. Jennifer was dabbing at her cheeks with a handkerchief. Riley simply reached up and squeezed Sage's hand as she passed.
+As she rode out of the ring, she passed close to where Rebecca stood with Jennifer and Riley. Rebecca's face was carefully neutral — held there with effort, as though the emotion underneath was something she didn't quite know what to do with in public. Her eyes were bright. Jennifer was dabbing at her cheeks with a handkerchief. Riley simply reached up and squeezed Sage's hand as she passed.
 
 "Tomorrow's the real test," Rebecca said quietly. "The speed demonstration. But today—today was exactly what we needed."
 

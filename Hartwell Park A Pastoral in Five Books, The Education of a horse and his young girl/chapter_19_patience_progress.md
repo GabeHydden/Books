@@ -45,7 +45,7 @@ She was right—the halter sat loose on his face, the crownpiece not yet fastene
 
 Promise's exhale came out in a shuddering rush. Another breath. Another. The terrible tension in his body eased by degrees—not relaxing, not yet, but no longer that frozen panic-stillness that meant his mind had left his body entirely.
 
-Rebecca's hands moved with practiced efficiency, bringing the crownpiece up and over his ears, buckling it with quick, sure movements. The whole thing took perhaps ten seconds.
+Rebecca's hands moved with the precise economy she brought to everything — no extra motion, no fumbling, each finger knowing exactly where to go. She brought the crownpiece up and over his ears and buckled it with quick, sure movements. The whole thing took perhaps ten seconds.
 
 Promise stood wearing a halter for the first time since arriving at Hartwell Park.
 
@@ -81,7 +81,7 @@ Sage nodded, watching Promise nose around his grain bucket. He seemed unbothered
 
 She wished she could learn that skill.
 
-"I need you to work with Marcus again this morning," Rebecca said. "He's ready to try trotting with a rider, I think. But he's uncertain about it—needs someone patient."
+"I need you to work with Marcus again this morning," Rebecca said, shifting into the planning register that came most naturally to her — tasks laid out in sequence, each one building toward the next. "He's ready to try trotting with a rider, I think. But he's uncertain about it—needs someone patient."
 
 "I can do that." Sage had been working with the three-year-old gelding for weeks now, building on the foundation Rebecca had laid. He was sweet-natured but cautious, needing clear communication and time to think through each new request. Rather like Promise, she'd come to realize. Both of them asking for partnership rather than domination.
 
@@ -101,7 +101,7 @@ They stood together in companionable silence, watching Promise explore his paddo
 
 "What did you hope?"
 
-"That you'd find something here worth staying for. That Promise would find a reason to trust again." Rebecca smiled slightly. "Seems like both of those things happened."
+"That you'd find something here worth staying for. That Promise would find a reason to trust again." Rebecca smiled slightly — one of those rare, brief expressions that came and went like sun through cloud, as though her face didn't quite know how long to hold it. "Seems like both of those things happened."
 
 Sage felt her throat tighten unexpectedly. "I don't know who I'd be now if you hadn't come for me."
 

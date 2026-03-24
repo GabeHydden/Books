@@ -235,7 +235,7 @@ She found Rebecca leaning against the rail, watching. Inside the pen, Promise st
 
 "Dislocated shoulder. Jennifer put it back. Two cracked ribs, at least. Out of riding for weeks." The words came out flat, clinical, borrowed from Jennifer's vocabulary because Sage didn't trust her own.
 
-Rebecca nodded once. She hadn't taken her eyes off Promise.
+Rebecca nodded once. She hadn't taken her eyes off Promise — hands flat on the rail, body angled toward the horse, processing what she could see with that focused intensity that blocked out everything else. The human part of the crisis — Riley's injury, Sage's guilt — would come later, once the animal was assessed.
 
 "How is he?" Sage asked, though she could see the answer.
 

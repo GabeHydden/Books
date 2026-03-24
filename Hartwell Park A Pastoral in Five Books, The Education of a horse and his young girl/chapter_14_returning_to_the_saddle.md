@@ -18,15 +18,15 @@ Sage nodded, though the forced inactivity chafed worse than the pain did.
 
 ***
 
-On the fourth day, Rebecca appeared after breakfast with a proposition.
+On the fourth day, Rebecca appeared after breakfast with a proposition. She stood in the doorway with her hands at her sides — not clasped, not crossed, just placed there with the deliberate stillness that was entirely her own.
 
-"Your ribs are healing. Jennifer says you can start moving around more, as long as you're careful. So today, you're going to help me with Promise's round pen session. Not working him yourself—just being present, learning by watching. And this afternoon, you're going to groom Clover. Light work. Building back your strength without risking re-injury."
+"Your ribs are healing. Jennifer says you can start moving around more, as long as you're careful. So." She laid it out in sequence, each item following the last like entries in a ledger. "Today, you're going to help me with Promise's round pen session. Not working him yourself—just being present, learning by watching. And this afternoon, you're going to groom Clover. Light work. Building back your strength without risking re-injury."
 
 It wasn't riding, but it was something. Sage accepted gratefully.
 
 Promise's session that morning was a study in patience. Rebecca worked him for just ten minutes—walk, halt, direction change, halt again. Nothing strenuous. Nothing that pushed him beyond his comfort. But every response was precise, every command followed without hesitation.
 
-"Watch his ears," Rebecca said quietly. "See how he's listening? That's what you want with every horse eventually. That quality of attention. That willingness to tune in to what you're asking."
+"Watch his ears," Rebecca said quietly, her eyes tracking Promise with that focused stillness — the same quality of attention she was describing, turned back on him like a mirror. "See how he's listening? That's what you want with every horse eventually. That quality of attention. That willingness to tune in to what you're asking."
 
 Sage watched Promise move in smooth circles, his black coat gleaming in the June sun. His stride was loose and relaxed, nothing like the tense, frightened creature who'd arrived three months ago. This horse was confident. Comfortable. Choosing to work because the work made sense and brought rewards.
 
@@ -38,7 +38,7 @@ Sage watched Promise move in smooth circles, his black coat gleaming in the June
 
 "Months or more. And that's if everything goes smoothly. If he has setbacks, if something spooks him, if he needs more time—we give him that time. Always." Rebecca called Promise to halt and he stopped immediately, turning to face her. She walked to him with a carrot, scratched his favorite spot behind his ears. "Patience isn't passive, Sage. It's active work. It's choosing to move at the right pace instead of the pace you want. That's what you forgot with Thunder—you wanted to move forward when he was telling you he needed to slow down."
 
-The words weren't unkind, but they landed heavily nonetheless. Sage nodded, hand pressed against her aching ribs.
+She delivered the assessment the way she always did — complete, precise, the hard part and the kind part given the same even weight because she didn't naturally distinguish between them. The words weren't unkind, but they landed heavily nonetheless. Sage nodded, hand pressed against her aching ribs.
 
 "I remember now. My ribs won't let me forget."
 

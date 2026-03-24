@@ -34,7 +34,7 @@ The ramp came down with a clatter, and Ember exploded backward out of the wagon�
 
 She ran the fence line, looking for escape. Finding none, she wheeled and faced them, her sides heaving, her neck dark with sweat. A handsome mare, Sage could see—well-bred, well-made, probably lovely under saddle before fear had unmade her. Now she stood with her head high and her ears flat, every line of her body screaming *stay away*.
 
-"Well," Rebecca said, appearing at Sage's elbow. She moved more slowly these days, her joints protesting the damp mornings, but her eyes were as sharp as ever. "That's a frightened horse."
+"Well," Rebecca said, appearing at Sage's elbow. She moved more slowly these days, her joints protesting the damp mornings, but her eyes were as sharp as ever — tracking the mare's movement with that focused, reading attention that hadn't dimmed at all. "That's a frightened horse."
 
 "Three months in a stall after a bad fall. She doesn't know what's real anymore."
 
@@ -44,7 +44,7 @@ Sage nodded. She knew what came next—the patient waiting, the quiet presence, 
 
 "I'll sit with her this afternoon," she said. "Start the way we always start."
 
-"Good." Rebecca's hand found her shoulder, squeezed once. "I'll leave you to it."
+"Good." Rebecca's hand found her shoulder — placed there with the same deliberate care it always was, the gesture no easier for her after all these years, but offered anyway. She squeezed once. "I'll leave you to it."
 
 ---
 

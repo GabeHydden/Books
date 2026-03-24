@@ -28,7 +28,7 @@ They stopped once, at a stream, to water the horses. Promise came down the ramp 
 
 "Do you ever miss... other places? Other lives you might have had?"
 
-Rebecca considered this. "Sometimes. When I was young, I thought I might travel—see Paris, or Vienna, or the mountains in Switzerland that travelers are always rhapsodizing about." She shrugged. "But I found something better. A place where I could do work that mattered. People who let me be who I am." Her gaze moved to Jennifer, who was stretching her legs by the carriage. "A life that fits."
+Rebecca considered this — seriously, the way she considered everything, turning the question over before answering it. "Sometimes. When I was young, I thought I might travel — see Paris, or Vienna, or the mountains in Switzerland that travellers are always rhapsodising about." She shrugged — a small, precise movement. "But I found something better. A place where I could do work that mattered. People who let me be who I am." Her gaze moved to Jennifer, who was stretching her legs by the carriage, and something softened in her face — briefly, the way it always did, there and gone. "A life that fits."
 
 Sage watched Promise tear at the grass, his black coat gleaming in the afternoon light. "I think I've found that too."
 

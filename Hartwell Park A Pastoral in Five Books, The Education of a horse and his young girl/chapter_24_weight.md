@@ -173,7 +173,7 @@ By the fifth day, she was pulling herself high enough that her belly pressed aga
 
 Sage's heart hammered so hard she could feel it in her throat. "Are you sure?"
 
-"No. I'm never sure. But he's as ready as he's going to get, and so are you." Rebecca moved to Promise's head, taking his lead rope. "I'll hold him. Riley will spot you."
+"No. I'm never sure. But he's as ready as he's going to get, and so are you." Rebecca moved to Promise's head, taking his lead rope. Her hands found their position — one under the chin, one at the cheekpiece — with the same exact placement she always used, the muscle-memory of a thousand horses held steady. "I'll hold him. Riley will spot you."
 
 Riley stood by the mounting block, arm still in the sling but the hand freed now, mobile enough to help if needed. They'd come to every session for the past week, watching from the fence, offering the occasional quiet observation. Now they looked at Sage with an expression that held everything — hope and fear and the particular understanding of someone who had been up there and been thrown.
 
@@ -279,7 +279,7 @@ Rebecca had her sit for a little longer each session. One minute. Two. Three. On
 
 Promise's ears pinned flat and his whole body braced, and Sage immediately went still.
 
-"He's managing," Rebecca said from the ground, but her voice was careful. Analytical. "He's not panicking. He's not throwing you. But he's not with you either."
+"He's managing," Rebecca said from the ground. Her voice had gone flat and precise — the clinical register it shifted into when she was observing something that worried her, all warmth set aside in favour of accuracy. "He's not panicking. He's not throwing you. But he's not with you either."
 
 That was it exactly. He was managing. Not present. Not the horse who leaned into her hand at the fence, who followed her voice in the round pen, who chose her company over solitude. Up here, astride, legs on both sides — she might as well have been anyone. Any rider. Any weight pressing down on him from above.
 

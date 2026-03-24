@@ -96,9 +96,9 @@ Promise was still in his corner, watching the fence where she had been. They wer
 
 "Perhaps." Sage took her seat at the table—she'd managed to come down for meals now, though conversation still felt like moving through water. "But it seemed important."
 
-Rebecca looked up from serving the stew. "You sat with Promise today."
+Rebecca looked up from serving the stew. She ladled Sage's portion with the same precise economy she brought to everything — no drips, no excess, the bowl set down centered on its plate. "You sat with Promise today."
 
-It wasn't a question. Of course Rebecca would know. She knew everything that happened with her horses.
+It wasn't a question. Rebecca rarely asked questions when she already had the answer. She stated what she'd observed and waited to see what you'd add.
 
 "Twenty minutes. He watched me the entire time. Didn't move."
 
@@ -112,7 +112,7 @@ She turned that over in her mind. Becoming boring. Being so consistently unthrea
 
 "How long did it take?" she asked. "With the other horses from Thornton?"
 
-Rebecca glanced at Riley, then answered. "The fastest was three weeks before they'd tolerate proximity. The longest..." She paused. "The longest never did. There was a mare, seven years ago. She'd take food from us, eventually, but she never stopped flinching. Never stopped waiting for the blow. She lived here for four years, grazing and existing, but she never trusted. Not really."
+Rebecca glanced at Riley, then answered — giving the full account, the way she always did, each detail laid out in sequence without editing for what her audience might want to hear. "The fastest was three weeks before they'd tolerate proximity. The longest..." She paused. "The longest never did. There was a mare, seven years ago. She'd take food from us, eventually, but she never stopped flinching. Never stopped waiting for the blow. She lived here for four years, grazing and existing, but she never trusted. Not really."
 
 "What happened to her?"
 
@@ -282,7 +282,7 @@ Sage sat in the rain for a few minutes longer, letting it soak into her hair, he
 
 When she finally stood and walked back to the house, she was smiling. Just slightly. Just enough.
 
-Rebecca was at the window when Sage came in, and something in her aunt's expression suggested she'd been watching.
+Rebecca was at the window when Sage came in — standing in what Sage was beginning to recognize as her watching position, hands flat on the sill, body angled toward the paddocks rather than the room. Something in her aunt's expression suggested she'd been there a while.
 
 "He passed close to you," Rebecca said.
 

@@ -220,7 +220,7 @@ That night at supper, Sage found herself fighting back tears she couldn't quite 
 
 "Nothing's wrong. Everything's—" Sage's voice cracked. "Promise came to the fence today. All the way. He just stood there. Looking at me."
 
-Rebecca and Riley exchanged glances. Rebecca reached across the table and squeezed Sage's hand briefly.
+Rebecca and Riley exchanged glances — one of those silent communications Sage was learning to notice. Rebecca reached across the table and squeezed Sage's hand once, briefly, then released. Not lingering. Rebecca's touches were always precise, offered and withdrawn with the same economy she brought to everything.
 
 "That's remarkable progress. Three weeks."
 
@@ -242,9 +242,9 @@ Sage considered. "I think it means showing up consistently, even when it's hard.
 
 "Even then. Because forcing it isn't trust. It's just... it's just another kind of violence."
 
-The table was quiet. Riley nodded slowly. Rebecca's eyes had gone distant, thoughtful.
+The table was quiet. Riley nodded slowly. Rebecca's eyes had gone distant, thoughtful — that inward look Sage had noticed before, as though she were following the thought to its full conclusion before speaking. She was quiet long enough that Jennifer glanced at her, but didn't interrupt.
 
-"I think," Rebecca said finally, "that you understand horses better than most people who've worked with them for decades. And I think you understand trauma better than most people who've never experienced it." She paused. "I'm grateful you're here, Sage. I'm grateful you chose to stay."
+"I think," Rebecca said finally, each word chosen with care, "that you understand horses better than most people who've worked with them for decades. And I think you understand trauma better than most people who've never experienced it." She paused. "I'm grateful you're here, Sage. I'm grateful you chose to stay."
 
 "I didn't have anywhere else to go."
 

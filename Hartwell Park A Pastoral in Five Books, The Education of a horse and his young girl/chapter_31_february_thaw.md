@@ -19,7 +19,7 @@ Six weeks until the fair. The number had begun to feel real in a way it hadn't b
 
 Rebecca called a meeting in her office that afternoon, the four of them crowded into the small space among the ledgers and records. The fire in the tiny grate barely warmed the room, but no one complained. There was too much to discuss.
 
-"Let's start with the sale horses," Rebecca said, consulting her notes. "Marcus?"
+"Let's start with the sale horses," Rebecca said, consulting her notes — a sheet of paper covered in her small, precise handwriting, each horse's name followed by numbered points. She was in her element here, surrounded by her systems, the conversation structured around information she'd already organized in her mind. "Marcus?"
 
 "Ready." Riley spoke with quiet confidence. "He's settled into himself over the winter. Good honest movement, responsive to the aids, no vices. He'll make someone an excellent hunter or hack."
 
@@ -101,13 +101,13 @@ The word hung in the air between them. Rebecca's face was unreadable, but her ey
 
 "I know." Sage's voice cracked, just slightly. "I know the risks. But what's the alternative? We show him as just a ladies' horse, and maybe that's enough for some buyers, but it's not the statement we wanted to make. It's not proof that he's everything a horse can be. It's just... settling."
 
-Rebecca was quiet for a long moment. Then she rose from her desk and came around to stand in front of Sage, her grey eyes searching.
+Rebecca was quiet for a long moment — the kind of silence Sage had learned to wait through, the silence of a mind following a chain of logic to its end before speaking. Then she rose from her desk and came around to stand in front of Sage, her grey eyes holding that too-direct focus that no longer unsettled Sage the way it once had.
 
 "You've grown," she said finally. "The girl who came here a year ago would never have proposed this. She was too afraid of failing, of being seen, of asking too much of herself."
 
 "I'm still afraid."
 
-"Good. Fear keeps us careful." Rebecca put a hand on Sage's shoulder. "If we do this—and I'm not saying yes yet—we train you properly. Not just Promise. You. Your seat, your balance, your ability to stay with him over fences at speed. We have six weeks. It won't be enough to make you an expert, but it might be enough to make you competent."
+"Good. Fear keeps us careful." Rebecca put a hand on Sage's shoulder — placed there deliberately, the way she placed everything, a gesture that cost her visible effort but was offered anyway. "If we do this—and I'm not saying yes yet—we train you properly. Not just Promise. You." She ticked the list on her free hand. "Your seat. Your balance. Your ability to stay with him over fences at speed. We have six weeks. It won't be enough to make you an expert, but it might be enough to make you competent."
 
 "I can do it."
 

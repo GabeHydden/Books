@@ -64,7 +64,7 @@ Jennifer's smile held something that might have been pride. "Then you'll be fine
 
 The exercise ring shimmered with heat by the time they gathered—Sage, Rebecca, and Riley, who'd been setting up the longe equipment. The longe line lay coiled on the ground next to a long whip, and the sight of it made Sage's stomach clench even though she knew Rebecca would never use it to cause pain. Promise knew whips as weapons. They would have to teach him something different.
 
-"Summer," Rebecca said without preamble, "is when we build the foundation that makes autumn possible. Sage, you've learned to ride at walk, trot, and canter on Clover. You've developed an excellent seat and good hands. Now we need to develop your confidence and your ability to ride through difficulty."
+"Summer," Rebecca said without preamble. She stood at the centre of the ring with her hands flat against her thighs, feet planted, body squared to them as though she were addressing a training session rather than a conversation. "Summer is when we build the foundation that makes autumn possible. Sage, you've learned to ride at walk, trot, and canter on Clover. You've developed an excellent seat and good hands. Now we need to develop your confidence and your ability to ride through difficulty."
 
 "Thunder," Sage said.
 
@@ -102,11 +102,11 @@ First, we wait.
 
 Promise's training session was scheduled for mid-morning, after the worst of the heat had built but before it became oppressive. Sage followed Rebecca and Riley to Promise's paddock, where Riley had already set up a temporary round pen—six portable panels arranged in a circle about forty feet across, positioned in the corner where Promise spent most of his time. The grass inside was already trampled from his pacing, familiar ground.
 
-"We're not ready for halters or lines yet," Rebecca explained, checking that the panels were secure. "Before we ask him to accept equipment, he needs to understand that he can work with us, that responding to our asks doesn't mean pain. Round pen work teaches that. It's just him and me, no physical connection, learning to communicate through body language and voice."
+"We're not ready for halters or lines yet," Rebecca explained, checking each panel connection with her hands — testing the latch, the hinge, the gap between rails — before moving to the next. Systematic. Thorough. The same way she checked everything. "Before we ask him to accept equipment, he needs to understand that he can work with us, that responding to our asks doesn't mean pain. Round pen work teaches that. It's just him and me, no physical connection, learning to communicate through body language and voice."
 
 "How do you make him move without touching him?" Sage asked.
 
-"Pressure and release. I use my position, my energy, to create gentle pressure that asks him to move. When he responds correctly, I release the pressure—step back, soften my body. He learns that the right answer makes the pressure go away, that cooperation brings relief." Rebecca's eyes were on Promise, who stood at the far end of his paddock watching them with wary interest. "It's the foundation of everything else. If he won't respond to this, he'll never accept a halter, a line, a saddle."
+"Pressure and release. I use my position, my energy, to create gentle pressure that asks him to move. When he responds correctly, I release the pressure—step back, soften my body. He learns that the right answer makes the pressure go away, that cooperation brings relief." Rebecca's eyes were on Promise, who stood at the far end of his paddock watching them with wary interest. Her gaze had that quality Sage had come to recognise — utterly focused, reading the horse's body the way other people read faces, seeing things Sage was only beginning to learn to notice. "It's the foundation of everything else. If he won't respond to this, he'll never accept a halter, a line, a saddle."
 
 Riley opened the gate of the round pen and stepped out, then closed it behind them. Rebecca stood in the center, waiting. For a long moment, nothing happened. Promise stayed where he was, sixty feet away, every muscle ready to flee.
 
@@ -198,7 +198,7 @@ That evening, Sage sat at her window as had become her habit, watching Promise i
 
 Jennifer appeared in the doorway behind her, carrying two glasses of cold cider. She handed one to Sage and settled on the bench by the wall.
 
-"Rebecca says you looked nervous this afternoon," Jennifer said after a moment. "About Thunder."
+"Rebecca mentioned you looked nervous this afternoon," Jennifer said after a moment. "About Thunder." The phrasing was careful — *mentioned*, not *said she was worried about*. Rebecca would have stated it as fact, not concern. Jennifer translated.
 
 "I am nervous. He's..." Sage searched for the right words. "He's not mean. I know that. But he's so much more than Clover. What if I can't—"
 

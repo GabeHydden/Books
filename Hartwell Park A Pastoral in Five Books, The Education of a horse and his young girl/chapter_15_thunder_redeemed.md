@@ -4,11 +4,11 @@ The morning Rebecca told Sage she was ready to ride Thunder again, Sage's stomac
 
 "Today?" she asked, keeping her voice carefully neutral.
 
-"Today." Rebecca's tone was matter-of-fact, brooking no argument. "You've had eight days to heal. Thunder's mouth is completely recovered. You've ridden Clover successfully. You've groomed Thunder every day without incident. There's no reason to wait longer except fear, and fear that's allowed to take root grows stronger, not weaker."
+"Today." Rebecca counted off the evidence on her fingers — not for emphasis but for accuracy, ticking each point the way she ticked items in her training logs. "You've had eight days to heal. Thunder's mouth is completely recovered. You've ridden Clover successfully. You've groomed Thunder every day without incident. There's no reason to wait longer except fear, and fear that's allowed to take root grows stronger, not weaker."
 
 Sage nodded, though her hands were already trembling. She'd known this moment was coming. Had thought about it every day while grooming Thunder, while watching Riley work him on the longe line, while lying awake at night replaying the rear over and over in her mind. But knowing it was coming and facing it were two different things.
 
-"Riley will supervise," Rebecca continued. "I'll be in the stable yard if needed. But Sage—" She waited until Sage met her eyes. "Thunder has moved on from what happened. The question is whether you have."
+"Riley will supervise," Rebecca continued. "I'll be in the stable yard if needed. But Sage—" She waited until Sage met her eyes, holding the gaze with that directness that still caught Sage off guard sometimes — not unkind, just unwavering, as though looking away before the point landed would be imprecise. "Thunder has moved on from what happened. The question is whether you have."
 
 ***
 

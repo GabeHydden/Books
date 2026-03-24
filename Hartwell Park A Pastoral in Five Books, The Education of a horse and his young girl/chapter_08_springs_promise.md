@@ -58,7 +58,7 @@ Maybe.
 
 "I'd like to try grooming him," Sage said at breakfast one morning.
 
-Rebecca looked up from her correspondence. "What makes you think he's ready?"
+Rebecca looked up from her correspondence — letters arranged in a neat row by date, pen laid parallel to the paper's edge, ink pot precisely centered on its cloth. "What makes you think he's ready?"
 
 "He takes the apples from my hand now. Every day. Sometimes he stays after eating, just standing there. Yesterday he let me touch his nose—just for a moment, but he didn't pull away." Sage set down her tea cup. "I think he's ready for more. Or ready to find out if he's ready."
 
@@ -134,7 +134,7 @@ Sage made a face. "I suppose I must."
 
 The honesty stung, but she couldn't argue. "Because I'm not experienced enough."
 
-"Because he needs someone who can read the slightest signs of panic and respond appropriately. Someone who won't get hurt if he bolts or bucks or rears. Someone who can be calm and confident even when he's terrified." Rebecca's voice was gentle but firm. "You're learning those skills. You're learning them remarkably fast. But they take time."
+"Because he needs someone who can read the slightest signs of panic and respond appropriately. Someone who won't get hurt if he bolts or bucks or rears. Someone who can be calm and confident even when he's terrified." Rebecca laid this out with the same methodical completeness she brought to training plans — every consideration named, nothing softened, nothing held back. "You're learning those skills. You're learning them remarkably fast. But they take time."
 
 "And he might never be rideable at all," Riley added. "Some horses who've been through what he has—they're never comfortable with a rider. They can live here, be handled, be groomed. But the weight on their back always means trauma. We won't know until we try, and we won't try until he's ready."
 
@@ -166,7 +166,7 @@ This person—the one who woke eager for the day's work, who could canter a hors
 
 "Rebecca," Sage asked one evening, "what if I stayed? Not just through summer. What if I... stayed?"
 
-Rebecca looked up from her book. They were in the study, Jennifer dozing in the chair by the fire, Riley out doing evening check on the horses. The lamplight made everything warm and golden.
+Rebecca looked up from her book — held close, read with the focused attention she gave everything, as though each page were a horse to be studied. They were in the study, Rebecca in the chair she always chose, the one angled toward the window with sightlines to the paddocks. Jennifer dozed in the chair by the fire, Riley out doing evening check on the horses. The lamplight made everything warm and golden.
 
 "This was always meant to be your home for as long as you needed it," Rebecca said carefully. "But staying isn't just about having nowhere else to go. It's about choosing to be here. Choosing this work. This life. Are you choosing it?"
 

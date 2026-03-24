@@ -4,11 +4,11 @@ Morning brought watery sunshine and the smell of frying bacon drifting from the 
 
 Now, with dawn fully broken and the fair stirring to life around them, there was work to do.
 
-Riley had already gone to Fair Hill by the time Sage came down. Rebecca sat in the inn's parlor with a cup of tea, reviewing a list of potential buyers she'd compiled from correspondence over the winter. Jennifer was arranging for their midday meal, her practical nature finding comfort in logistics.
+Riley had already gone to Fair Hill by the time Sage came down. Rebecca sat in the inn's parlor with a cup of tea, reviewing a list of potential buyers she'd compiled from correspondence over the winter — each name followed by numbered notes on their requirements, their means, their likely interest. The list was organised by priority, the handwriting small and exact. She was more settled here than she'd been in the chaos of the inn yard — anchored by the task, the structure of it, the way the work narrowed the world to something she could manage. Jennifer was arranging for their midday meal, her practical nature finding comfort in logistics.
 
 "Marcus first," Rebecca said without preamble. "He's the one who needs the right match. Oliver will sell himself to anyone with eyes."
 
-They walked together through the awakening fair—past traders setting up stalls, past horses being led to water, past the early crowds already gathering along the flashing lanes. The smell of horses and wood smoke and meat pies mingled in the cool morning air. Sage kept her eyes moving, watching for green and gold, but Thornton's colors were nowhere in sight.
+They walked together through the awakening fair — past traders setting up stalls, past horses being led to water, past the early crowds already gathering along the flashing lanes. The smell of horses and wood smoke and meat pies mingled in the cool morning air. Rebecca's stride had quickened the moment they entered the crowd, her shoulders drawing up, her gaze fixing straight ahead as though the press of bodies and noise on all sides was something to be navigated rather than enjoyed. Jennifer touched her elbow — lightly, briefly — and Rebecca's pace eased. Sage had seen that touch before, in a dozen different settings. The steadying hand. The quiet signal that said *I'm here, it's manageable*. Sage kept her eyes moving, watching for green and gold, but Thornton's colors were nowhere in sight.
 
 At Fair Hill, Riley had Marcus and Oliver groomed and ready. Marcus stood with his head high, nostrils flaring at every new sight and sound, but his feet stayed planted. A year ago, he would have been dancing at the end of his lead rope, whites of his eyes showing. Now he was nervous but contained—uncertain to cautiously willing, as Rebecca had put it. Sage felt a swell of pride. She'd helped make him this way.
 
@@ -76,7 +76,7 @@ Riley raised an eyebrow. "No?"
 
 "We don't need to prove anything today. The exhibition tomorrow will show what he can do." Sage thought of Riley's fall, of Rebecca's words about pushing too fast, of all the lessons they'd learned about patience. "I'd rather save his energy and his trust for when it matters. The flashing lane is chaos—strange horses, crowds pressing close. He handled yesterday well, but every test costs something. I don't want to spend what we might need later."
 
-Rebecca, walking ahead, turned back with something like approval in her expression. "Good. That's good thinking."
+Rebecca, walking ahead, turned back with something like approval in her expression — brief and direct, given the same weight she'd give a correct answer about a horse's lameness. "Good. That's good thinking."
 
 It was strange, Sage reflected, how restraint could feel harder than action. Everything in her wanted to show Promise off, to let the world see what they'd built together. But wisdom wasn't about what you could do. It was about what you chose not to.
 
@@ -96,7 +96,7 @@ The number hung in the air. Sage saw Jennifer's face go still. Two hundred guine
 
 "I watched your groom ride him in yesterday." Lord Cavendish nodded toward Riley, who stood with Thunder's reins in hand, expression unreadable. "The horse is responsive without being dull, forward without being hot. And your groom sits him beautifully—which tells me the horse has been properly trained, not just broken to saddle."
 
-Rebecca glanced at Jennifer. Something passed between them—a conversation without words, the kind that came from years of partnership.
+Rebecca glanced at Jennifer — a quick, searching look, the kind she gave when she needed help reading a situation that had moved past numbers into feeling. Something passed between them — a conversation without words, the kind that came from years of partnership.
 
 "I'll need to discuss it with my household," Rebecca said. "Thunder has been with us for six years. He's not a decision to make lightly."
 

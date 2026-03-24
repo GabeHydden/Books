@@ -83,11 +83,11 @@ They stood there in the cold garden, the grey sky pressing down and their breath
 
 The afternoon was given over to preparation. Jennifer commandeered the kitchen entirely, producing dishes that seemed far too elaborate for their small household—a goose that had been hanging in the cold larder for days, roasted vegetables, a pudding that had been steaming for hours.
 
-Sage helped where she could, peeling and chopping under Jennifer's patient direction. Rebecca appeared occasionally to taste things and offer opinions, always retreating before Jennifer could put her to actual work.
+Sage helped where she could, peeling and chopping under Jennifer's patient direction. Rebecca appeared occasionally to taste things and offer opinions, always retreating before Jennifer could put her to actual work. She moved through the kitchen the way she moved through any unstructured situation — carefully, as though the absence of a clear task made the room itself unpredictable. With horses she was fluid, instinctive. Here she picked up a spoon, set it down, picked up a cloth, set it down, her hands looking for something purposeful to do.
 
-"She's hopeless in a kitchen," Jennifer confided. "Brilliant with horses, utterly lost with a potato."
+"She's hopeless in a kitchen," Jennifer confided, watching this with the fond expression of someone who had seen it a thousand times. "Brilliant with horses, utterly lost with a potato."
 
-"I heard that," Rebecca called from the parlor.
+"I heard that," Rebecca called from the parlor, having retreated again.
 
 "You were meant to."
 
@@ -103,7 +103,7 @@ Jennifer was quiet for a moment, her hands continuing their work. "I knew when I
 
 "Weren't you afraid? Of what people would think, or—"
 
-"Terrified. Still am, sometimes." Jennifer set down her basting brush and turned to face Sage fully. "But I decided fear was a poor reason to give up the best thing in my life. Fear will always find something to feed on. Love is harder to come by."
+"Terrified. Still am, sometimes." Jennifer set down her basting brush and turned to face Sage fully. "But I decided fear was a poor reason to give up the best thing in my life. Fear will always find something to feed on. Love is harder to come by." She paused, wiping her hands, something shifting in her expression — moving from general to particular, as though she'd decided Sage had earned the deeper version. "Rebecca has always understood horses better than people. It's not a choice — it's simply how her mind works. Horses are honest in a way she was built for. They don't hint. They don't expect her to read between lines she can't see. I learned early on that when she says something that cuts, she hasn't felt the edge of it. She's just being precise. My job, if you like, is to feel the edges for her."
 
 Sage thought about Riley's gloves warm on her hands, the handkerchief tucked over Riley's heart.
 
@@ -123,7 +123,7 @@ The words loosened something tight in Sage's chest that she hadn't even known wa
 
 Christmas Eve dinner was everything Jennifer had promised and more. They ate in the dining room, which was reserved for special occasions, with candles casting warm light over the laden table and a fire crackling in the hearth.
 
-Rebecca said grace—brief and heartfelt, thanking not just God but the horses and the land and the people gathered around the table. It wasn't a traditional prayer, but nothing about Hartwell was traditional.
+Rebecca said grace — the one structured moment of the evening she seemed comfortable in, her voice finding its steadiness in the ritual's familiar shape. Brief and heartfelt, thanking not just God but the horses and the land and the people gathered around the table. It wasn't a traditional prayer, but nothing about Hartwell was traditional.
 
 "To another year," Rebecca said, raising her glass. "To the horses who teach us patience. To the work that gives us purpose. To the family we've built and the family yet to come."
 
@@ -369,7 +369,7 @@ Outside, the churchyard had transformed into a social gathering. Families cluste
 
 "Morrison! Merry Christmas." He approached with his wife Margaret and their son Thomas. "Mrs. Blackwood. Miss Riley. And Miss Sage—I hear congratulations are in order. Emma's been talking of nothing else since she saw Promise on the road."
 
-"He performed admirably," Rebecca said.
+"He performed admirably," Rebecca said — the assessment delivered the way she delivered all assessments, precise and factual, though Sage had learned by now to hear the pride underneath.
 
 "So I understand. Emma's been begging to see him properly." Squire Fairfax's expression grew more thoughtful. "I'll confess, when you first mentioned taking on that stallion, I had my doubts. But if he's as steady as Emma describes, well—that speaks very well of your methods."
 

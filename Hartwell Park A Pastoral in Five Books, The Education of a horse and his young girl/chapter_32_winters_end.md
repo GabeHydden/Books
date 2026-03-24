@@ -19,7 +19,7 @@ She envied him that simplicity sometimes.
 
 ---
 
-The final preparations had taken on an almost military precision. Rebecca had drawn up schedules, checklists, contingency plans. The horses to be sold—Marcus and Oliver—had been groomed and polished until they gleamed. Their tack had been cleaned and oiled, mended where needed, made presentable.
+The final preparations had taken on an almost military precision — though for Rebecca, this was simply how things were done. She had drawn up schedules, checklists, contingency plans, each one written in her small precise hand and pinned to the office wall in sequential order. The horses to be sold—Marcus and Oliver—had been groomed and polished until they gleamed. Their tack had been cleaned and oiled, mended where needed, made presentable.
 
 Promise's tack was another matter entirely.
 
@@ -49,7 +49,7 @@ He jumped beautifully. That had been the surprise of the past weeks—discoverin
 
 "And if Thornton does make trouble?"
 
-Rebecca's expression hardened. "Then we handle it. Marcus Thornton is a bully and a coward. He hurts things weaker than himself because it makes him feel powerful. But Promise isn't weak anymore, and neither are you."
+Rebecca's expression hardened — not into anger but into that cold precision her voice took on under stress, every word placed like a brick. "Then we handle it. Marcus Thornton is a bully and a coward. He hurts things weaker than himself because it makes him feel powerful. But Promise isn't weak anymore, and neither are you."
 
 "He might try to stop us somehow. Claim Promise is dangerous, that he shouldn't be shown—"
 

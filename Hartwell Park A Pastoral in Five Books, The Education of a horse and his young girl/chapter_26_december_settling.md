@@ -61,9 +61,9 @@ The spring fair. Sage had heard it mentioned in passing—the annual county even
 
 ---
 
-Rebecca's office was a small room off the main stable, barely big enough for a desk, two chairs, and the towering shelves of records she'd accumulated over fifteen years of running Hartwell. Sage settled into the worn leather chair across from Rebecca's desk, trying not to feel like she was being called before a headmistress.
+Rebecca's office was a small room off the main stable, barely big enough for a desk, two chairs, and the towering shelves of records she'd accumulated over fifteen years of running Hartwell. The desk itself was immaculate — ledgers stacked by size, ink pot in its exact center, pen laid parallel to the book's edge. Everything in its place, the way Rebecca's physical world always was. Sage settled into the worn leather chair across from Rebecca's desk, trying not to feel like she was being called before a headmistress.
 
-"The spring fair is the first week of April," Rebecca began without preamble, opening her ledger. "It's our primary opportunity to sell the horses we've trained and to establish our reputation for the year. A good fair means financial security. A poor one means a difficult twelve months."
+"The spring fair is the first week of April," Rebecca began without preamble, opening her ledger. She was more at ease here than Sage had ever seen her in the parlor — shoulders settled, hands placed with purpose, her whole body oriented toward the work in front of her the way it oriented toward horses in the field. "It's our primary opportunity to sell the horses we've trained and to establish our reputation for the year. A good fair means financial security. A poor one means a difficult twelve months."
 
 Sage nodded, understanding settling in. She'd known Hartwell wasn't wealthy—the comfortable-but-worn furnishings, the practical rather than fashionable clothing, the careful attention to waste made that clear. But she hadn't fully grasped how the finances worked.
 
@@ -77,7 +77,7 @@ Rebecca's pen paused. "Promise won't be sold. He's too valuable to sell."
 
 "Valuable how?"
 
-"His bloodlines, for one. Thoroughbred-Arabian cross with documented lineage—that's desirable stock for anyone breeding hunters or sport horses." Rebecca set down her pen and met Sage's eyes. "But more than that: Promise is proof that our methods work. Not just on broken-down cart horses or nervous youngsters, but on a genuinely damaged stallion. If we can rehabilitate him—not just to tolerance, but to genuine partnership—that proves something."
+"His bloodlines, for one. Thoroughbred-Arabian cross with documented lineage—that's desirable stock for anyone breeding hunters or sport horses." Rebecca set down her pen and met Sage's eyes with that direct, unblinking focus that still caught Sage off guard — not unkind, just unmodulated, as though softening her gaze was a social skill she'd never quite acquired. "But more than that: Promise is proof that our methods work. Not just on broken-down cart horses or nervous youngsters, but on a genuinely damaged stallion. If we can rehabilitate him—not just to tolerance, but to genuine partnership—that proves something."
 
 Sage thought about this. "You kept him as a stallion on purpose. It would have been easier to geld him."
 
@@ -189,7 +189,7 @@ The front door opened, bringing a gust of cold air and Riley's familiar footstep
 
 "He does. He watches everything that happens in that barn." Riley's eyes found Sage's across the room, warm and steady. "He's come a long way from the horse who couldn't stand anyone within sight."
 
-"So have you," Rebecca said, glancing up from her ledger with an expression that might have been meant for Sage, or Riley, or both of them.
+"So have you," Rebecca said, glancing up from her ledger with an expression that might have been meant for Sage, or Riley, or both of them. The warmth in it was real but brief — there and gone, like her rare smiles, before she returned to her numbers.
 
 Outside, the winter night pressed against the windows, cold and dark. Inside, the fire crackled and the household settled into their evening routines. Down in the barn, a black stallion dozed in his warm stall, occasionally lifting his head to listen to the sounds of the other horses breathing nearby—part of a herd now, in ways he'd never imagined possible.
 

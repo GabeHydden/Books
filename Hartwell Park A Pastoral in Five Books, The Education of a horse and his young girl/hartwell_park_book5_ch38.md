@@ -20,9 +20,9 @@ She turned, and Riley was there, and suddenly she was crying—great heaving sob
 
 Sage pressed her face into Riley's shoulder and let herself fall apart. All the fear she'd been holding back, all the doubt, all the desperate hope—it poured out of her in waves, leaving her shaking and raw and somehow lighter than she'd been in months.
 
-When she finally pulled back, wiping her face with her sleeve, Rebecca was standing nearby with Jennifer. Both of them were smiling—Rebecca's small and private, Jennifer's wide and watery.
+When she finally pulled back, wiping her face with her sleeve, Rebecca was standing nearby with Jennifer. Both of them were smiling — Rebecca's small and controlled, already retreating back behind her usual composure now that the crisis had passed, Jennifer's wide and watery.
 
-"Well," Rebecca said. "I think that's quite enough excitement for one day."
+"Well," Rebecca said. Her hands were at her sides, placed there with that deliberate stillness, as though she needed to hold herself very still to keep the emotion from spilling into her body. "I think that's quite enough excitement for one day."
 
 Sage laughed, the sound catching on a sob. "Is it always like this? When it works?"
 
@@ -82,7 +82,7 @@ Riley let out a breath Sage hadn't realized she'd been holding. "We're keeping h
 
 Jennifer reached across the table to squeeze Rebecca's hand. "We'll manage," she said quietly. "We always do."
 
-"We'll more than manage." Rebecca's smile widened. "I've had eight serious inquiries about Promise's stud services today alone. Conservative estimates put next spring's breeding fees at four hundred guineas—possibly more if interest continues to grow."
+"We'll more than manage." Rebecca's smile widened, and Sage recognised the particular brightness in her eyes — the same look she got when a training plan came together, when the numbers aligned, when the system she'd built proved sound. This was how Rebecca felt triumph: not as a rush of emotion but as confirmation that her logic had been correct. "I've had eight serious inquiries about Promise's stud services today alone. Conservative estimates put next spring's breeding fees at four hundred guineas — possibly more if interest continues to grow."
 
 Sage stared at her. "Four hundred guineas?"
 
@@ -98,7 +98,7 @@ They drank to that—even Sage, though her wine was well watered. The warmth spr
 
 Sage felt her cheeks flush. "I just did what you taught me."
 
-"You did more than that. You trusted your own judgment when it mattered most." Rebecca paused. "The Squire asked if we might be willing to take Emma on as a student. Not for training—for teaching. He wants her to learn what you know. How you work with horses."
+"You did more than that. You trusted your own judgment when it mattered most." Rebecca paused — not for effect, but with the quality of someone assembling a thought to its precise completion before releasing it. "The Squire asked if we might be willing to take Emma on as a student. Not for training — for teaching. He wants her to learn what you know. How you work with horses."
 
 The flush deepened. "Me? Teach Emma?"
 
@@ -112,7 +112,7 @@ Sage looked down at her plate, overwhelmed. A year ago, she'd been a grieving gi
 
 ---
 
-Later, after the dinner had wound down and Jennifer had retired and Rebecca had gone to check on the stabling arrangements, Sage found herself standing outside Promise's stall in the quiet of the evening.
+Later, after the dinner had wound down and Jennifer had retired and Rebecca had gone to check on the stabling arrangements — walking the aisle the way she always did, same order, same careful inspection of each horse, the routine unchanged whether they were at home or at a strange inn, Sage found herself standing outside Promise's stall in the quiet of the evening.
 
 He was dozing, one hip cocked, his head low. The straw was fresh—Riley had seen to that—and the water bucket was full. In the dim light of the stable lantern, his black coat gleamed like silk.
 

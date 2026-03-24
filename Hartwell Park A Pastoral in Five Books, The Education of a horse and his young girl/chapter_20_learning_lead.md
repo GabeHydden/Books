@@ -35,7 +35,7 @@ Just-looking. The pattern-they-established with rope-thing. Show-first. Smell-fi
 
 But his heart pounds-thunder anyway. Long-rope is different from face-rope. Long-rope means being-moved-against-will. Long-rope means trapped-different, controlled-complete.
 
-Tall-calm-human doesn't come-closer. Stands at good-distance, holding the long-rope where he can see-clear. Not hiding-it. Not surprising-with-it. Just... showing.
+Tall-calm-human doesn't come-closer. Stands at her same-exact-distance, the one she always-chooses — precise-reliable, like she has a measurement-rule inside her body that says this-is-where-I-stand. Holding the long-rope where he can see-clear. Not hiding-it. Not surprising-with-it. Just... showing.
 
 "This is a lead line," she says, though he doesn't know the word-sounds mean the thing she holds. "We're going to attach it to your halter. But we're not going anywhere. Not today. Today you just learn it exists."
 
