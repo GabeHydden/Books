@@ -100,7 +100,7 @@ Riley appeared from somewhere behind her—he'd been watching, Sage realized, st
 
 Sage wiped at her eyes, laughing a little at herself. "Why does everything with him make me cry?"
 
-"Because you understand what it means. What it costs him to stay present. What it costs you to be that patient." Riley's hand on her shoulder was warm and steady. "You're both doing the hardest work there is. Relearning the world."
+"Because you understand what it means. What it costs him to stay present. What it costs you to be that patient." Riley's hand on her shoulder was warm and steady.
 
 ***
 
@@ -170,7 +170,7 @@ Rebecca looked up from her book — held close, read with the focused attention 
 
 "This was always meant to be your home for as long as you needed it," Rebecca said carefully. "But staying isn't just about having nowhere else to go. It's about choosing to be here. Choosing this work. This life. Are you choosing it?"
 
-Sage thought about the question. Thought about Bath, about drawing rooms and calling cards and the endless performance of being a proper young lady. Thought about her mother's parlor and the way women spoke in careful circles around everything that mattered. Thought about the world that had given Mr. Pemberton permission to put his hands on her throat and then blamed her for his violence.
+Sage thought about the question. Thought about Bath, about drawing rooms and calling cards and the endless performance of being a proper young lady. Thought about her mother's parlor and the way women spoke in careful circles around everything that mattered. Thought about the world that had given Mr. Pemberton permission and then blamed her for his violence.
 
 Then she thought about Promise taking his apple from her hand. About Clover's patient teaching. About Riley's quiet acceptance and Jennifer's warmth and Rebecca's wisdom. About the ache in her muscles from honest work. About the way she fell asleep each night without nightmares, without fear.
 

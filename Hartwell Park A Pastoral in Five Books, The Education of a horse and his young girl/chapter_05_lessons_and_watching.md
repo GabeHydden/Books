@@ -66,7 +66,7 @@ But she didn't. She held still, let the touch happen, let it end.
 
 "There," Jennifer said, as if she'd merely been tidying rather than testing. "You had a bit coming loose."
 
-Sage's heart was beating faster than such a small thing warranted, but underneath the flutter was something else. Something like triumph. She had allowed that touch. Had felt her body's warning and chosen, consciously, not to flee.
+Underneath the flutter of her heartbeat was something else. Something like triumph. She had allowed that touch. Had felt her body's warning and chosen, consciously, not to flee.
 
 "I'm nervous," she said. "About the riding."
 
@@ -76,9 +76,7 @@ Sage's heart was beating faster than such a small thing warranted, but underneat
 
 "Something like that." Jennifer moved to the door, then paused. "You're doing beautifully, you know. All of it. The horses see it. We see it too."
 
-After she left, Sage stood for a moment longer, her hand drifting up to touch the place behind her ear where Jennifer's fingers had been. Such a small thing. Such an ordinary gesture.
-
-And she had let it happen.
+After she left, Sage stood for a moment longer, her hand drifting up to touch the place behind her ear where Jennifer's fingers had been. And she had let it happen.
 
 ***
 
@@ -240,7 +238,7 @@ She thought about Clover's solid warmth beneath her. The strange, shifting balan
 
 When had that become possible?
 
-She remembered Mr. Pemberton's hands. Not on her throat—that came later—but before. On her arm, her waist, her hip. Positioning her the way he wanted. Moving her like a doll, like a thing without will.
+She remembered Mr. Pemberton's hands. On her arm, her waist, her hip. Positioning her the way he wanted. Moving her like a doll, like a thing without will.
 
 Riley's hands had been so different. Impersonal but kind. Touching her body as a student's body—something to be taught, not something to be used. And her body had known the difference. Had recognized, somehow, that this was not that.
 
@@ -252,7 +250,7 @@ Maybe that was how it worked. Maybe the body could learn new truths even while t
 
 She had ridden a horse today. Had felt Clover's power and responsiveness, had guided that thousand-pound creature with her legs and hands. Had discovered that her body could do things she'd never imagined.
 
-Her body was not just the thing Mr. Pemberton had grabbed. Not just the throat he had squeezed. Not just the frozen, failing flesh that had been unable to fight him off.
+Her body was not just the thing Mr. Pemberton had grabbed. Not just the frozen, failing flesh that had been unable to fight him off.
 
 Her body was also the thing that could learn to ride. Could post the trot, could find the rhythm, could communicate with another creature through pressure and release. Could be strong and capable and *hers*.
 
@@ -261,8 +259,6 @@ Promise was watching her, those dark eyes assessing. She met his gaze steadily.
 "I rode today," she told him softly. "A horse. For the first time. And I didn't fall off."
 
 His ear flicked toward her voice.
-
-"We're both learning, aren't we? What our bodies can do. What they're for, besides being afraid."
 
 He didn't answer—of course he didn't—but he didn't move away, either. Just stood there, seven feet from the fence, watching her with those dark, knowing eyes.
 
@@ -282,19 +278,13 @@ That evening, at supper, Sage found herself eating with genuine appetite for the
 
 "All the same. Starting is the hardest part."
 
-The words stayed with her. Starting. Taking the first step even when you didn't know what came next. Sitting in the mud day after day even when nothing seemed to change. Pulling yourself onto a horse's back even when every instinct said you'd fall.
-
 "Promise came closer today," she said. "After I rode. He was grazing right near the fence. Watching me."
 
 A look passed between Rebecca and Riley.
 
 "He's curious," Riley said. "He's been watching you work with the other horses all week. Watching you groom them, walk them out, today watching you ride. He's trying to understand what you're doing. What this partnership thing is that the other horses seem comfortable with."
 
-"Partnership," Sage repeated. The word felt important, weighty.
-
-"That's what it is. What it should be, anyway." Rebecca set down her fork. "Not domination. Not submission. Partnership. Two beings choosing to work together because it benefits both. That's what I've been trying to show him. That's what you're showing him now, whether you know it or not."
-
-Sage thought of Clover's patient teaching that afternoon. The way the mare had stood still while Sage fumbled, had responded immediately to her uncertain cues, had made it easy for a frightened woman to sit on her back without feeling trapped. That was partnership too, wasn't it? Clover choosing to work with her, to carry her, to help her learn.
+"That's what it is. What it should be, anyway." Rebecca set down her fork. "Not domination. Not submission. Partnership. Two beings choosing to work together because it benefits both."
 
 "Will I be able to ride him someday?" she asked quietly. "Promise?"
 

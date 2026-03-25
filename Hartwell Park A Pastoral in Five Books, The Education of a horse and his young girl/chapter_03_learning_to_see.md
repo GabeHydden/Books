@@ -4,7 +4,7 @@ Sage woke to birdsong and the low sound of horses calling to each other across t
 
 She rose and went to the window, drawn by the sounds outside. Dawn was just breaking, the sky pale gold at the horizon, and in the nearest paddock she could see Riley moving among the horses with a bucket. Even from this distance, the ease of movement was evident. Riley walked between the animals like water flowing around stones, no hesitation, no wariness, just simple presence.
 
-One of the horses—a grey mare with a darker mane—lifted her head from grazing and walked over to Riley without being called. Put her nose in the bucket. Riley's hand came up to scratch behind her ears while the mare ate, and something about the casualness of the gesture made Sage's throat tighten. 
+One of the horses—a chestnut mare with a flaxen mane—lifted her head from grazing and walked over to Riley without being called. Put her nose in the bucket. Riley's hand came up to scratch behind her ears while the mare ate, and something about the casualness of the gesture made Sage's throat tighten. 
 
 When had she last touched or been touched without flinching?
 
@@ -26,7 +26,7 @@ Riley looked up as she approached, no surprise in the expression. "Miss Morrison
 
 "Most people stay in bed till a decent hour. Or at least till the sun's properly up." Riley moved to the next horse, a bay gelding who lipped at the bucket with evident pleasure. "You can come closer. They won't bother you unless you've got grain in your pockets."
 
-Sage took a step forward, then another. The grey mare was watching her now with dark, liquid eyes that seemed to take in everything. Sage froze.
+Sage took a step forward, then another. The chestnut mare was watching her now with dark, liquid eyes that seemed to take in everything. Sage froze.
 
 "She's wondering what you are," Riley said, matter-of-fact. "Clover's never met you. Strange humans are worth examining."
 
@@ -70,7 +70,7 @@ Sage felt something catch in her chest. Honesty. These animals couldn't lie, cou
 
 Riley studied her for a long moment. "Rebecca said you might ask. Yes. I can teach you. But it means being out here, working with them. Getting close. Can you do that?"
 
-Sage thought of Promise in his paddock. Thought of the way he'd watched her from the window, frozen in his own assessment of threat. Thought of hands on her throat and the way her mother had looked away.
+Sage thought of Promise in his paddock. Thought of the way he'd watched her from the window, frozen in his own assessment of threat.
 
 "I can try."
 
@@ -204,16 +204,4 @@ Sage thought of Promise watching her from his paddock. Thought of his frozen ass
 
 "Riley's right. Terror and viciousness look the same from the outside. But they're not the same at all. One is cruelty. The other is survival." She said it with the conviction of someone who had spent a long time working out a distinction that mattered deeply to her—a distinction, Sage thought, that might apply to more than horses.
 
-Outside, the rain intensified. Somewhere in the darkness, Promise would be standing in his paddock, enduring the weather, waiting for the next threat to materialize. Learning, perhaps slowly, that sometimes the threat didn't come. That sometimes there was just rain and darkness and the distant sound of other horses.
-
-That sometimes, there was just survival without the need for fighting.
-
-Sage touched her throat, felt the fading bruises. She knew survival. Knew it in every fiber of her being.
-
-And she understood, now, what it meant to teach someone that the world might be different than they'd learned.
-
-It meant patience. It meant distance. It meant showing up, day after day, and not being the thing they feared.
-
-She didn't know if she could do that. But she thought, perhaps, she could try.
-
-After all, someone was doing it for her.
+Outside, the rain drove harder against the windows. Somewhere in the darkness beyond, a horse breathed alone in his paddock, learning that not every night brought pain.

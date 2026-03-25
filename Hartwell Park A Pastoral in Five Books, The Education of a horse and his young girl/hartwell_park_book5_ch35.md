@@ -82,7 +82,7 @@ And Promise—remarkably, impossibly—listened. He watched the mare pass, his n
 
 "That's the whole point," Sage said, wringing water from her cloth. "Anyone can train a horse to obey when there's nothing to distract them. The real test is whether they can choose to behave when every instinct is telling them otherwise."
 
-Squire Fairfax had moved closer during the washing, his expression shifting from wariness to something like respect. "I confess I had my doubts," he said quietly, watching Promise accept Emma's pat on his neck. "When Mrs. Morrison first mentioned she'd taken on Thornton's problem stallion, I thought she'd lost her senses. That horse had a reputation."
+Squire Fairfax had moved closer during the washing, his expression shifting from wariness to something like respect. "I confess I had my doubts," he said quietly, watching Promise accept Emma's pat on his neck. "When Miss Hartwell first mentioned she'd taken on Thornton's problem stallion, I thought she'd lost her senses. That horse had a reputation."
 
 "He still does," Sage said. "But reputations can be wrong."
 

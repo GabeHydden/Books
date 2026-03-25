@@ -275,13 +275,13 @@ They'd been riding perhaps twenty minutes when Sage heard hoofbeats behind them�
 
 The rider drew alongside them, and Emma Fairfax's face was alight with excitement. She was perhaps twelve or thirteen, with fair hair pinned up beneath a riding hat and rosy cheeks from both the cold and her obvious delight.
 
-"Good morning, Miss Morrison! Miss Sage!" Emma called cheerfully. "Merry Christmas!"
+"Good morning, Miss Hartwell! Miss Sage!" Emma called cheerfully. "Merry Christmas!"
 
 "Good morning, Emma. Merry Christmas," Rebecca replied.
 
 "Merry Christmas," Sage added, smiling at the girl's enthusiasm.
 
-"Oh, Miss Sage—is this him? Is this really Promise?" Emma's eyes were wide as she took in the black stallion. "I've heard you and Miss Morrison speak of him after services, but I never imagined—he's magnificent!"
+"Oh, Miss Sage—is this him? Is this really Promise?" Emma's eyes were wide as she took in the black stallion. "I've heard you and Miss Hartwell speak of him after services, but I never imagined—he's magnificent!"
 
 Sage felt her spine straighten automatically, protective but also proud. "This is Promise, yes."
 
@@ -305,7 +305,7 @@ Sage glanced at Rebecca, who gave a small nod.
 
 The name sent a small chill through Sage. "Thornton?"
 
-"Mmm, the daughter of Marcus Thornton—you must know of him? He has that big training establishment near Sheffield. Papa says he's very successful, though..." Emma lowered her voice conspiratorially. "Papa also says he's rather harsh with his horses. Not like Miss Morrison at all."
+"Mmm, the daughter of Marcus Thornton—you must know of him? He has that big training establishment near Sheffield. Papa says he's very successful, though..." Emma lowered her voice conspiratorially. "Papa also says he's rather harsh with his horses. Not like Miss Hartwell at all."
 
 Rebecca's expression remained neutral. "The Thorntons use different methods than we do at Hartwell, yes."
 
@@ -329,7 +329,7 @@ Emma's smile was radiant. "How could I not? He's beautiful."
 
 They left their horses with a stable boy at the churchyard—a local lad who handled Promise with appropriate respect after Rebecca murmured a few quiet instructions—and joined the flow of parishioners making their way inside. St. Michael's was a small church, ancient stone and dark wood, already filling with the village's faithful.
 
-Sage had been attending services here every Sunday since arriving at Hartwell, and the curious glances that had followed her in those early weeks had long since faded. The congregation had grown accustomed to seeing Miss Morrison's cousin, the quiet young woman who helped with the horses. But today felt different. Today Promise was waiting outside in the churchyard, visible evidence of everything she'd worked toward these past months.
+Sage had been attending services here every Sunday since arriving at Hartwell, and the curious glances that had followed her in those early weeks had long since faded. The congregation had grown accustomed to seeing Miss Hartwell's cousin, the quiet young woman who helped with the horses. But today felt different. Today Promise was waiting outside in the churchyard, visible evidence of everything she'd worked toward these past months.
 
 Rebecca's hand on her elbow was steady, guiding her to their usual pew near the middle where Jennifer and Riley were already seated.
 
@@ -383,7 +383,7 @@ It wasn't quite an endorsement, but it wasn't a challenge either. Sage felt the 
 
 Emma appeared then, slightly breathless from playing with the other children. "Papa, may I go see Promise again? Properly this time? Please?"
 
-"If Miss Morrison and Miss Sage don't mind, and if you promise not to pester them with too many questions."
+"If Miss Hartwell and Miss Sage don't mind, and if you promise not to pester them with too many questions."
 
 "I never pester!" Emma protested, then grinned. "Well, perhaps a little."
 

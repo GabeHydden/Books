@@ -138,7 +138,7 @@ The murmurs around them shifted, taking on an edge. Lady Catherine had gone pale
 
 "Mr. Thornton," Rebecca said, stepping forward from where she'd been standing with Jennifer. "This is neither the time nor the place—"
 
-"When is the time, Mrs. Morrison? When that animal hurts someone? When he shows his true nature and some poor fool pays the price?" Thornton's gaze swept the crowd, playing to his audience. "You've all seen a lovely display today. A black stallion doing tricks for a young lady. Faster than my daughter's mare, yes—faster than everyone." His voice dripped with contempt. "But I owned that horse for two years. I know what he is."
+"When is the time, Miss Hartwell? When that animal hurts someone? When he shows his true nature and some poor fool pays the price?" Thornton's gaze swept the crowd, playing to his audience. "You've all seen a lovely display today. A black stallion doing tricks for a young lady. Faster than my daughter's mare, yes—faster than everyone." His voice dripped with contempt. "But I owned that horse for two years. I know what he is."
 
 He stepped closer, close enough that Promise's nostrils flared at his scent. The horse remembered. Sage could feel it in the sudden tension beneath her—the recognition, the old fear trying to surface.
 
@@ -166,6 +166,6 @@ Promise stood rigid beneath her, his breath coming fast, his eye showing white a
 
 Thornton crossed his arms over his chest, his expression triumphant.
 
-"Well, Miss Morrison? Mrs. Morrison?" He looked from Sage to Rebecca and back again. "Surely you can find someone willing to prove me wrong?"
+"Well, Miss Morrison? Miss Hartwell?" He looked from Sage to Rebecca and back again. "Surely you can find someone willing to prove me wrong?"
 
 The silence stretched on. And on. And on.

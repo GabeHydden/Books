@@ -129,8 +129,6 @@ This is different from before-time, where word-sounds meant nothing-true, where 
 
 He stands at the fence long after small-human leaves for her other-work. Processing-thinking about the morning-time. About the rope-thing that came-close and went-away without hurting. About the choice-feeling he had, strange and new, of staying-instead-of-fleeing.
 
-About trust-pieces adding up.
-
 The sun climbs higher-bright. The air warms from morning-cool to day-comfortable. Other horses call back-and-forth in their paddocks. Thunder's deep-voice. Clover's soft-whinny. Whisper's high-bright-sound.
 
 He's part of this now, he realizes. Part of the pattern-life here. Not the broken-scary-thing in the corner-paddock anymore. One of the horses-who-work. Or learning to be.
@@ -147,25 +145,15 @@ She understands. Hand comes up to rub behind his ears, finding the good-spot tha
 
 Tomorrow used to mean more-fear, more-pain, more reasons to stay small-and-still and hope-for-nothing.
 
-Now tomorrow means rope-thing-that-maybe-isn't-threat. Means trust-pieces adding-up. Means learning-work that his body chooses instead of endures.
+Now tomorrow means rope-thing-that-maybe-isn't-threat. Means learning-work that his body chooses instead of endures.
 
 He's still scared-nervous about the rope-thing. About what it means-for-future. About whether this is the beginning of work-real, of joining the other-horses in their carrying-humans and moving-together-work.
 
 But he's also curious-interested. Wondering-thinking about what comes next-after. About whether he could learn to be like light-happy-mare who loves-her-work. About whether the rope-thing is tool-for-partnership instead of tool-for-pain.
 
-The afternoon sun is warm on his back-broad. Grass underneath tastes sweet-good. Small-human is nearby-close, making her sounds-of-concentration as she works with the spotted-young-horse who's learning to carry-weight.
+The afternoon-breeze carries evening-grass smell across his paddock-space, rich and green-deep. Somewhere close-nearby, Thunder makes a low sound-content in his own paddock, settling-down for rest-time. Promise flicks one ear toward the other-horse-sound, then lets it go-easy.
 
-Everything is different-now than before-time.
-
-Everything is maybe-possibly-hopefully-turning into the life his old-self never dared imagine-real.
-
-The rope-thing will come back tomorrow. He knows this certain-sure.
-
-And tomorrow, he'll stand again. He'll smell again. He'll choose trust-pieces again.
-
-Because that's what learning looks like now. Not pain-submission-breaking.
-
-But choice-repeated-brave, one morning-time at a time.
+The air moves cool-gentle against his coat where the rope-thing had touched-brief. Just air now. Just evening-quiet and grass-taste and the warm-heavy feeling of a body that worked-hard and came-through-safe.
 
 ---
 

@@ -38,13 +38,13 @@ Squire Fairfax was pushing through the crowd now, his face a mask of barely cont
 
 "You can't know that," the Squire said. "No one can know that."
 
-"She can." Emma pointed at Sage. "She knows. And so does Mrs. Morrison. They've spent a year with him, and they're not afraid. Look at them, Father. Really look. Do they seem like people who would let me get hurt?"
+"She can." Emma pointed at Sage. "She knows. And so does Miss Hartwell. They've spent a year with him, and they're not afraid. Look at them, Father. Really look. Do they seem like people who would let me get hurt?"
 
 The Squire's gaze moved to Sage, then to Rebecca. Sage tried to keep her expression calm, tried to project the confidence she didn't entirely feel. Beside her, Promise had lowered his head slightly, his attention fixed on the small figure pushing through the crowd.
 
 He remembered her. Sage could feel it in the subtle shift of his weight, the way his ears pricked forward. The girl from the river. The one who'd held his rope and talked to him softly and never once caused him pain.
 
-"Mrs. Morrison." The Squire's voice was strained. "I need to hear it from you. If my daughter gets on that horse—"
+"Miss Hartwell." The Squire's voice was strained. "I need to hear it from you. If my daughter gets on that horse—"
 
 "She'll be safe." Rebecca stepped closer, and her eyes found the Squire's with that too-direct focus — the one that unsettled people who didn't know her, but that Sage had learned to recognise as her form of absolute sincerity. "I've worked with that animal for nearly a year. I know what he's capable of — good and bad. And I believe, with everything I am, that he would sooner hurt himself than harm a child."
 

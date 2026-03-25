@@ -130,19 +130,19 @@ Marcus Thornton.
 
 "Mr. Thornton." She kept her voice steady. "I don't believe we've been introduced."
 
-"We haven't. But I know who you are. Rebecca Morrison's little project." His gaze moved over her with dismissive assessment. "I saw you flash that nervous gelding this morning. Decent enough work, I suppose. For a girl."
+"We haven't. But I know who you are. Rebecca Hartwell's little project." His gaze moved over her with dismissive assessment. "I saw you flash that nervous gelding this morning. Decent enough work, I suppose. For a girl."
 
 Sage said nothing. Her heart was pounding, but she'd learned from Promise—from all the horses—that showing fear only invited pursuit.
 
 "I also saw what's in that stall." Thornton's voice dropped, and something ugly moved behind his eyes. "The black stallion. That's my horse."
 
-"He belongs to Hartwell Park now. Mrs. Morrison purchased him legally."
+"He belongs to Hartwell Park now. Miss Hartwell purchased him legally."
 
 "From a knacker's yard, I'm told. Because I had the good sense to send him there." Thornton stepped closer. He smelled of tobacco and something sour—spirits, perhaps, this early in the day. "That animal is dangerous. Vicious. He put three of my best riders in the surgeon's care before I gave up on him."
 
 "He's never been vicious at Hartwell. Only frightened."
 
-Thornton laughed—a harsh, barking sound. "Frightened. That's what your Mrs. Morrison tells herself, is it? That every horse is just misunderstood?" He leaned in, close enough that Sage could see the broken veins on his nose. "I've been breaking horses for thirty years, girl. I know what's in that animal's nature. You can gentle him down, make him look pretty for the ladies, but underneath? He's still the horse who nearly killed my men. And sooner or later, he'll show it."
+Thornton laughed—a harsh, barking sound. "Frightened. That's what your Miss Hartwell tells herself, is it? That every horse is just misunderstood?" He leaned in, close enough that Sage could see the broken veins on his nose. "I've been breaking horses for thirty years, girl. I know what's in that animal's nature. You can gentle him down, make him look pretty for the ladies, but underneath? He's still the horse who nearly killed my men. And sooner or later, he'll show it."
 
 "Then you won't mind watching the exhibition tomorrow." Sage was surprised by how calm her voice sounded, when everything inside her was screaming. "You can see for yourself what patience and kindness have built."
 

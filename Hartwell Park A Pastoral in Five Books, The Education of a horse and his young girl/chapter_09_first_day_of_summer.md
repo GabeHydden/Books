@@ -4,7 +4,7 @@ The first morning of June arrived with light so bright it seemed to have weight.
 
 Summer had come to Hartwell Park.
 
-She dressed in the blue cotton day dress Jennifer had altered for her, then changed her mind and reached for the work dress instead—the one that had once been Rebecca's, sturdy brown linen that could take stains without complaint. Her hands, tying the laces, were brown from sun and roughened from work. The bruises on her throat were long gone. When she caught her reflection in the small mirror above the washstand, she almost didn't recognize the woman looking back. Stronger. Clearer. Taking up space without apology.
+She dressed in the blue cotton day dress Jennifer had altered for her, then changed her mind and reached for the work dress instead—the one that had once been Rebecca's, sturdy brown linen that could take stains without complaint. Her hands, tying the laces, were brown from sun and roughened from work. When she caught her reflection in the small mirror above the washstand, she almost didn't recognize the woman looking back. Stronger. Clearer. Taking up space without apology.
 
 The woman her mother would call ruined.
 
@@ -144,7 +144,7 @@ Promise stopped immediately, then turned to face her. His sides heaved slightly 
 
 Rebecca approached slowly, praise in every line of her body. When she reached him he held steady, and she scratched his forehead, then produced a carrot from her pocket. He took it carefully, crunching while she praised him.
 
-"Well done," she told him. "We'll do this every day now. Just a few minutes. Just enough to teach without overwhelming. You're learning to listen, and I'm learning how to ask you things. That's what this is—both of us learning to speak the same language."
+"Well done," she told him. "We'll do this every day now. Just a few minutes. Just enough to teach without overwhelming."
 
 Promise leaned into her hand, and Sage felt something in her chest ease and tighten simultaneously. Progress. Healing. The slow work of building trust.
 

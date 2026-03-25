@@ -74,9 +74,9 @@ Now here she was, working alongside Jennifer, their bodies near enough to touch,
 
 Jennifer considered the question, her hands still working the dough. "Small things," she said finally. "The first time I laughed without feeling guilty. The first morning I woke and didn't immediately remember he was gone. The first time I let Rebecca touch my hand without wanting to weep." She looked up. "Why do you ask?"
 
-Sage placed another round on the baking sheet. "I'm trying to notice. The small things. So I'll know."
+Sage placed another round on the baking sheet. "So I'll know. When it's happening."
 
-Jennifer nodded slowly. "That's wise. The noticing itself is part of it, I think. Paying attention to what's changing, instead of only what hasn't."
+Jennifer nodded slowly. "The noticing itself is part of it, I think. Paying attention to what's changing, instead of only what hasn't."
 
 They worked in silence for a while longer, the simple rhythm of cutting and placing strangely soothing. When the tray was full, Jennifer slid it into the oven and wiped her hands on her apron.
 
@@ -88,7 +88,7 @@ Sage wrapped her hands around her now-lukewarm tea. "I don't feel like I'm doing
 
 Later, walking out to her room to change out of her muddy dress, Sage catalogued: She had stayed in the kitchen. Had worked beside Jennifer without tensing. Had let their elbows brush and felt nothing but the simple fact of contact.
 
-Promise was still in his corner, watching the fence where she had been. They were both of them keeping track, she realized. Both measuring the distance left to cross.
+Promise was still in his corner, watching the fence where she had been.
 
 ***
 
@@ -128,7 +128,7 @@ The next morning Sage returned to the paddock with her book and a shawl against 
 
 She tried to read, but her mind wouldn't settle into the words. Instead it kept returning to yesterday—Jennifer's hand brushing her shoulder in the kitchen, the way her body had jerked before her mind could intervene. The shame of it. But also Jennifer's calm, the way she hadn't made it into something Sage needed to apologize for.
 
-Promise was watching her from the far fence. They were both of them watchful creatures now, she realized. Both waiting to see what would happen next. Both expecting, despite evidence, that the next thing might hurt.
+Promise was watching her from the far fence.
 
 She hadn't been a watchful creature before. Before Bath, before Mr. Pemberton, she had moved through the world assuming it was mostly safe. That people meant roughly what they said. That the rules of society—the ones about courtesy and propriety and what gentlemen did and didn't do—would protect her.
 
@@ -142,11 +142,7 @@ And then the library. The door closing. The way his face had changed when they w
 
 *You didn't misunderstand anything,* she thought, the old anger flaring. *You understood exactly what he was doing. You said no. You pushed at his chest. You tried to slip past him to the door.*
 
-And he had put his hands on her throat and squeezed until the world went grey at the edges, and she had learned that *no* was just a word. That her will, her voice, her body's resistance—none of it mattered when a man decided otherwise.
-
-Promise stamped his foot at something—a bird, perhaps, or a shadow—and Sage startled, her hand flying to her throat before she could stop it.
-
-*We're the same,* she thought, watching him settle back into his vigilance. *Both learning that the rules we trusted were lies. Both waiting for the next betrayal.*
+Promise stamped his foot at something—a bird, perhaps, or a shadow—and Sage startled.
 
 But Promise was here, in this paddock, being offered a different kind of truth. And so was she.
 
@@ -172,7 +168,7 @@ The rain fell steadily, soaking through the mackintosh at the seams. Sage pulled
 
 She had replayed those words a hundred times since Bath. Had examined them from every angle, looking for some interpretation that didn't mean what she knew it meant.
 
-Her mother had looked at the bruises on her throat—livid, unmistakable, the size and shape of a man's hands—and had chosen to disbelieve what she saw.
+Her mother had looked at the bruises—livid, unmistakable, the size and shape of a man's hands—and had chosen to disbelieve what she saw.
 
 *Surely you did something to encourage—*
 
@@ -196,7 +192,7 @@ By the fifth morning, Sage had established a rhythm. Wake at dawn, dress in her 
 
 She was learning about the other horses now, spending her afternoons with Riley in the barn or the paddocks. Clover let her stroke her neck now, the mare's head lowering in contentment when Sage found the right spot behind her ears. Thunder had learned she sometimes carried carrot ends in her pockets and would lip at her hands with hopeful insistence. Whisper remained timid but had started approaching when Sage sat quietly, curious in her careful way.
 
-But Promise was different. Promise was the one she thought about during the night, when sleep wouldn't come and she lay staring at the ceiling, touching the fading bruises on her throat. Promise was the one who mirrored back something she recognized but couldn't quite name.
+But Promise was different. Promise was the one she thought about during the night, when sleep wouldn't come and she lay staring at the ceiling. Promise was the one who mirrored back something she recognized but couldn't quite name.
 
 "You're thinking about him," Riley observed one afternoon, while teaching her how to read hoof condition. They were in the barn with Clover, the mare standing patiently while Riley demonstrated how to pick out a hoof.
 
@@ -212,7 +208,7 @@ Sage thought about how to explain it. "When I sit out there, I keep thinking abo
 
 Riley set down the hoof pick, gave Sage his full attention. "Or that you brought it on yourself?"
 
-The accuracy of it was like a blow. Sage's hand went to her throat.
+The accuracy of it was like a blow.
 
 "I knew a bit about what happened to you in Bath," Riley said quietly. "Rebecca told me some. Not details, just enough to understand why you're here. I hope you don't mind that."
 
@@ -250,23 +246,11 @@ But Promise's ears had swiveled forward. Just for a moment.
 
 That was something.
 
-That was enough.
-
 ***
 
 By the end of the week, the pattern was established. Every morning, every evening when weather and work allowed. Sage with her book and her patience, Promise with his vigilance and his slowly unfurling curiosity. She'd made it through most of _The Odyssey_ now, though she couldn't have summarized it if asked. The words were just something to do with her eyes while she taught a terrified horse that presence didn't equal threat.
 
 Riley had been right about one thing: most people wouldn't have had the patience for it. Sitting in the cold and mud, watching an animal who wouldn't approach, who showed barely perceptible changes day by day. It would have seemed pointless.
-
-But Sage recognized pointless. She knew the value of small things that looked like nothing from the outside. Knew that healing—if healing was even possible—came in increments too tiny to measure by any standard scale.
-
-She recognized the gift because someone was doing the same for her. Rebecca with her matter-of-fact kindness. Jennifer with her gentle presence that never pressed too close. Riley with his patient teaching. None of them demanded more than she could give. None of them asked her to explain or justify or hurry her recovery.
-
-They just existed around her, consistently, until she began to believe that maybe safety was possible. That maybe the world held more than what Mr. Pemberton had taught her.
-
-It was exactly what she was offering Promise. Exactly what he needed.
-
-And perhaps, in offering it to him, she was learning to offer it to herself as well.
 
 On the seventh evening, as the sun set and the first stars appeared, Sage sat in her usual spot and felt the shift in the air that meant rain was coming. Promise felt it too—his nostrils flared, scenting the change, and he moved across the paddock with purpose, heading for the shelter of the barn overhang at the paddock's edge.
 

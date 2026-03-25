@@ -36,7 +36,7 @@ Promise turned his head, his muzzle brushing against Sage's arm. She could feel 
 
 They made it perhaps twenty feet before the first inquiry found them.
 
-"Mrs. Morrison! A moment, if you please!"
+"Miss Hartwell! A moment, if you please!"
 
 A gentleman in a well-cut coat was hurrying toward them, his face eager. Behind him, Sage could see others hovering—a cluster of well-dressed men and women, all watching Promise with appraising eyes.
 
@@ -44,7 +44,7 @@ A gentleman in a well-cut coat was hurrying toward them, his face eager. Behind 
 
 "That stallion." Lord Whitmore gestured toward Promise. "I've never seen anything like him. The movement, the temperament—and after what we just witnessed..." He shook his head in wonder. "I have three mares I'd like to breed next spring. What are your stud fees?"
 
-Before Rebecca could answer, another voice cut in. "I'd like to discuss the same matter, Mrs. Morrison. My wife's mare is exceptional—Dorian's dam, actually—and I believe your stallion would be a perfect match."
+Before Rebecca could answer, another voice cut in. "I'd like to discuss the same matter, Miss Hartwell. My wife's mare is exceptional—Dorian's dam, actually—and I believe your stallion would be a perfect match."
 
 "And I," said a third voice. "I've been looking for a sire with that kind of disposition. Flashy movement is common enough, but a horse who'll take care of his rider? That's worth its weight in gold."
 

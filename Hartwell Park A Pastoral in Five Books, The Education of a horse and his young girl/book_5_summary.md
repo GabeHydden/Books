@@ -51,7 +51,7 @@ Two sales before midday—Rebecca pleased with income.
 
 **Riley suggests flashing Promise** (not to sell, for stud interest). Sage declines: "We don't need to prove anything today. The exhibition tomorrow will show what he can do." Wisdom about conserving energy and trust. Rebecca approves: "Good. That's good thinking."
 
-**Thornton confrontation:** Sage encounters Marcus Thornton in the inn yard while checking on Promise. Large man in green coat and gold waistcoat, florid face, cold eyes. He blocks her path, calls her "Rebecca Morrison's little project."
+**Thornton confrontation:** Sage encounters Marcus Thornton in the inn yard while checking on Promise. Large man in green coat and gold waistcoat, florid face, cold eyes. He blocks her path, calls her "Rebecca Hartwell's little project."
 
 Thornton's claims: Promise is dangerous, vicious, put three riders in surgeon's care ("Broke one man's arm"). Claims gentling is temporary—"underneath? He's still the horse who nearly killed my men." Threatens to watch the exhibition: "when that horse shows his true nature... I'll be there to remind everyone that I warned them."
 

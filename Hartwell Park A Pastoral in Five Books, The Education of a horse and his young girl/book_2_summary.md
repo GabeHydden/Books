@@ -341,7 +341,7 @@ Surprise/approval at her honesty and giving credit to the horse.
 
 **Subsequent fences:** Hedge with ditch (Thunder enthusiastic, Sage grabs pommels on landing but recovers). Six more fences total—walls, hedges, small coop. Each time Thunder carries her safely.
 
-**After the hunt:** Lord Ashworth rides up: "That's well-schooled horse, Miss Hartwell. Honest over fences, good manners in company. Miss Morrison's training, I assume?"
+**After the hunt:** Lord Ashworth rides up: "That's well-schooled horse, Miss Morrison. Honest over fences, good manners in company. Miss Hartwell's training, I assume?"
 
 "Yes, my lord. Though Thunder deserves most of the credit."
 

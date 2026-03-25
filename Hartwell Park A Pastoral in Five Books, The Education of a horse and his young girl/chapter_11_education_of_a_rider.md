@@ -148,6 +148,4 @@ In the distance, Sage could hear Rebecca calling voice commands in the round pen
 
 Sage leaned her forehead against the fence rail, Promise's warmth solid beside her.
 
-"I'm learning," she whispered. "For both of us. I'm learning."
-
 And Promise, who'd spent the afternoon watching small-human work with three different horses, who'd seen her fall and get back on, who'd watched her discover something new each day, stayed close. Choosing proximity. Choosing trust.

@@ -136,9 +136,9 @@ Conversations paused. Eyes tracked their approach. Lord Ashworth himself—an ol
 
 "Miss Morrison," he said, and there was something complicated in his tone. Not quite welcome, not quite dismissal. "I'm surprised to see you. It's been years since you rode out with us."
 
-"Lord Ashworth." Rebecca's voice was perfectly polite, perfectly correct. "May I introduce my niece, Miss Hartwell. She's been training with me this season."
+"Lord Ashworth." Rebecca's voice was perfectly polite, perfectly correct. "May I introduce my niece, Miss Morrison. She's been training with me this season."
 
-Lord Ashworth's eyes moved to Sage, assessed her position, her seat, Thunder's condition. "Miss Hartwell. That's a fine animal you're riding."
+Lord Ashworth's eyes moved to Sage, assessed her position, her seat, Thunder's condition. "Miss Morrison. That's a fine animal you're riding."
 
 "Thank you, my lord. His name is Thunder. He's been patient with my learning."
 
@@ -166,11 +166,11 @@ They jumped six more fences that morning—walls and hedges and a small coop—a
 
 Lord Ashworth rode up beside them, face still florid from exertion but expression thoughtful.
 
-"That's well-schooled horse, Miss Hartwell. Honest over fences, good manners in company. Miss Morrison's training, I assume?"
+"That's well-schooled horse, Miss Morrison. Honest over fences, good manners in company. Miss Hartwell's training, I assume?"
 
 "Yes, my lord. Though Thunder deserves most of the credit. He's been extraordinarily patient with my mistakes."
 
-"Hmm." Lord Ashworth studied Thunder with professional interest. "Morrison, I assume you used your... gentler methods with him?"
+"Hmm." Lord Ashworth studied Thunder with professional interest. "Hartwell, I assume you used your... gentler methods with him?"
 
 "I did," Rebecca said evenly.
 

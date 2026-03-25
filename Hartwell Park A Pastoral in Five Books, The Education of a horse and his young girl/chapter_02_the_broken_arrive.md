@@ -114,7 +114,7 @@ What if this place is different?
 
 He crushes the thought immediately. Different is not possible. Different is the trap. Different is what they want him to believe right before they show him it was all the same after all, that pain is the only constant, that trust is the fastest way to die.
 
-But the grass is real. The space is real. The watching-human with her throat-touching gesture and her stillness—she was real too.
+But the grass is real. The space is real. The watching-human with her stillness—she was real too.
 
 He does not know what to do with real things that do not hurt him.
 

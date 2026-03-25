@@ -148,7 +148,7 @@ She thought about the word *no*.
 
 She had said it to Mr. Pemberton. Had said it clearly, had meant it completely, had believed—stupidly, childishly—that the word would matter. That her voice had power.
 
-He had taught her otherwise. Had taught her that her voice was nothing when a man decided not to hear it. Had wrapped his hands around her throat and squeezed until she couldn't say anything at all.
+He had taught her otherwise. Had taught her that her voice was nothing when a man decided not to hear it.
 
 For weeks afterward, she had felt mute. Not physically—she could speak, could make sounds—but mute in some deeper way. As though the words that came out of her mouth were just noise. As though she had learned, once and for all, that her voice changed nothing.
 
@@ -172,7 +172,7 @@ She had a voice. It was small, it was quiet, but it was hers. And here, in this 
 
 Three weeks. Sage marked the anniversary of her arrival at breakfast, surprised by how different she felt. How much had changed in twenty-one days.
 
-The bruises on her throat were completely gone now. She could see it in the morning mirror—no mark, no shadow. The visible evidence healed.
+The bruises were completely gone now. She could see it in the morning mirror—no mark, no shadow. The visible evidence healed.
 
 Her body had changed too. Stronger. The riding and farm work had put muscle on her arms, her legs, her back. She moved differently—more confidently, taking up space without apology. The trousers no longer felt scandalous when she put them on. They felt practical. Right.
 
@@ -192,7 +192,7 @@ Five feet. He'd moved five feet closer over the course of three weeks. Inch by i
 
 Sage's breath caught in her throat. She wanted to move toward him, to close the distance, to reach out. But she held perfectly still. This was his choice. His pace. She was just the constant, the boring fixture he'd learned was safe.
 
-They looked at each other across the five feet of space. Girl and horse. Both learning to trust again. Both taking the smallest steps toward something that looked like healing.
+They looked at each other across the five feet of space.
 
 Promise lowered his head and tore up a mouthful of grass. Chewed. Swallowed. Raised his head again to look at her.
 
@@ -227,25 +227,3 @@ Rebecca and Riley exchanged glances — one of those silent communications Sage 
 "Is it fast? Slow? I don't know what it means."
 
 "It means he's made a choice," Riley said. "Could have taken three months. Could have taken three years. With some horses, it never happens. But he chose to trust you enough to come close. That's everything."
-
-Sage wiped at her eyes, frustrated with herself for crying over something that probably seemed so small. A horse walking to a fence. So what?
-
-But it wasn't small. It was three weeks of patience. Three weeks of showing up. Three weeks of proving through action that presence didn't have to mean pain.
-
-"I've been thinking," she said slowly, "about what trust means. Real trust, not just... not just going through the motions because society expects it."
-
-"And what do you think it means?" Rebecca asked.
-
-Sage considered. "I think it means showing up consistently, even when it's hard. Even when you don't see progress. I think it means respecting boundaries—not pushing past them just because you want to. I think it means..." She paused, working through the thought. "I think it means giving someone the space to choose. And then honoring that choice, whatever it is."
-
-"Even if they choose not to trust you?" Jennifer's voice was soft.
-
-"Even then. Because forcing it isn't trust. It's just... it's just another kind of violence."
-
-The table was quiet. Riley nodded slowly. Rebecca's eyes had gone distant, thoughtful — that inward look Sage had noticed before, as though she were following the thought to its full conclusion before speaking. She was quiet long enough that Jennifer glanced at her, but didn't interrupt.
-
-"I think," Rebecca said finally, each word chosen with care, "that you understand horses better than most people who've worked with them for decades. And I think you understand trauma better than most people who've never experienced it." She paused. "I'm grateful you're here, Sage. I'm grateful you chose to stay."
-
-"I didn't have anywhere else to go."
-
-"You could have gone many places. You chose here. That matters."

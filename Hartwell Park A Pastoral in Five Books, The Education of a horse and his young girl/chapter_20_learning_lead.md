@@ -51,8 +51,6 @@ But.
 
 But he's learned things since before-time. Learned that these-humans keep their word-sounds. Learned that just-looking really means just-looking. Learned that he can say no-not-ready and they listen-respond.
 
-Learned that trust-pieces add-up.
-
 So he stretches his neck-long, careful-slow. Nostrils flare-wide, taking in the long-rope's information. Leather-smell different from halter-leather. Oil-smell. Metal-smell cold-sharp. Human-hand-smell. Barn-smell.
 
 No blood-smell. No fear-smell. No pain-memory-smell that makes his body react-automatic.
@@ -319,8 +317,6 @@ Because he knows-trusts that if he says no-not-ready, she'll listen-respond. Kno
 
 If he could do that-scary-thing, maybe he can do tomorrow's-scary-thing too.
 
-Knows that trust-pieces keep adding-up, day by day, session by session, choosing-brave-again-and-again.
-
 She stays at his fence-line as the sun drops-low toward horizon-edge. Just being-there-with-him. Not asking-anything. Not demanding-response. Just sharing-space-quiet.
 
 This is what partnership feels-like, he's learning. Not always working-moving-doing. Sometimes just being-together-present.
@@ -341,29 +337,13 @@ The night-air grows cool-sharp against his coat. Small-human finally leaves-relu
 
 But before-time feels distant-now. Like story-from-someone-else's-life. Like memory-fading-edges.
 
-This is his life-now. This paddock-safe. These humans-kind. This work-gradual. This trust-building.
+This is his life-now. This paddock-safe. These humans-kind. This work-gradual.
 
-Tomorrow the lead-line will come-again. Tomorrow he might walk-beyond his paddock-space. Tomorrow might bring new-scary-things.
+Across the yard-dark, a light appears in the house-window where small-human sleeps. He watches it glow warm-steady against the night. She is in there doing her own settling-down, her own processing-thinking about the day's work-done.
 
-But tomorrow will also bring small-human at sunrise-time. Will bring sweet-fruit and good-touch and word-sounds-soft. Will bring the chance to choose-brave-again, to add-more-trust-pieces, to become-more of the horse he's discovering-he-can-be.
+His legs ache a new-kind-of-tired. Not fear-exhaustion, not running-from-pain tired. Thinking-hard tired. Learning-something-difficult tired. The kind of tired that means his body went somewhere-new today and came-back-different.
 
-Horse-who-wears-halter without terror-constant.
-
-Horse-who-might-someday-walk-on-lead without fighting-desperate.
-
-Horse-who-is-learning that partnership-work is real-actual, not trick-temporary.
-
-Horse-who-holds-hope-careful but holds-it-nonetheless.
-
-The stars wheel-slow overhead. The other-horses settle-quiet in their paddocks-nearby. The barn-cats prowl-hunting in the darkness-full.
-
-And he grazes-peaceful in his space-known, halter still on his face (they've started leaving-it-on through nights now, helping him forget-it's-there), processing-thinking about lead-lines and trust-pieces and the strange-wonderful-terrible-hopeful work of becoming-brave.
-
-One morning-session at a time.
-
-One choice-toward-trust at a time.
-
-One tomorrow-possibility at a time.
+He shifts his weight, lets his head drop-low, and closes his eyes against the halter-weight he barely notices-anymore. The light in the window stays-steady. He lets it be the last thing he sees before sleep-comes.
 
 ---
 

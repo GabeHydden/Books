@@ -144,8 +144,6 @@ Getting-ready for maybe-someday when Promise might-choose to do work-with-her. B
 
 Learning-like-he-was-learning.
 
-Both-students in this partnership-thing.
-
 Promise pushed his nose against her shoulder—the gesture that meant *here-with-you-comfortable*. She leaned-gentle against his touch, not-grabbing, not-demanding-more.
 
 Just: accepting what he chose-to-give.
@@ -184,8 +182,6 @@ Tomorrow there would be more round-pen-work. More learning pressure-and-release,
 
 And small-human would keep riding other-horses. Keep learning-better. Keep preparing-herself for maybe-someday when Promise might be ready.
 
-Both-learning. Both-preparing. Both-building toward partnership-possible.
-
 Not-now. Not-yet.
 
 But maybe.
@@ -200,16 +196,6 @@ Tomorrow would come. Work would come. Learning would come.
 
 And small-human would be there, patient-waiting, getting-better while he got-better.
 
-Both-students.
-
-Both-learning to speak the language of choice-instead-of-force.
-
 Both-believing, just-a-little-more, in maybe-different, maybe-possible, maybe-someday.
 
 The grass tasted sweet-good. The evening-air felt soft-gentle. The wondering in his chest felt less-dangerous-trap, more like... hope-carefully-held.
-
-Not-trust-complete. Not-trust-certain.
-
-But trust-growing.
-
-One-day, one-choice, one-gentle-teaching at a time.

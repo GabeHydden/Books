@@ -154,7 +154,7 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
 
 ### OTHER HORSES AT HARTWELL
 
-**CLOVER** (Grey mare with darker mane)
+**CLOVER** (Chestnut mare with flaxen mane)
 - Patient, calm, friendly
 - "The finest teacher" - has taught more people to ride than Riley can count
 - Approaches Riley willingly at feed, comfortable with humans
@@ -162,7 +162,7 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
 - Professional, dignified, "patience of a saint"
 - Safe enough for beginner riding at walk, trot, canter
 
-**THUNDER** (Bay gelding)
+**THUNDER** (Grey dappled gelding)
 - Pushy, higher in hierarchy
 - Crowds forward for food first
 - More spirit than Clover—will challenge rider
@@ -415,8 +415,8 @@ Final scene: Sage at window, Promise in moonlight. Both keeping promises to each
 - Sage wears trousers for riding, dresses otherwise
 - Promise's coat: glossy black with blue highlights
 - Scars on Promise: shoulder, face, neck (visible but not detailed yet)
-- Clover: grey with darker mane
-- Thunder: bay
+- Clover: chestnut with flaxen mane
+- Thunder: grey dappled
 - Whisper: chestnut with white blaze
 
 ### SKILLS/ABILITIES TO TRACK

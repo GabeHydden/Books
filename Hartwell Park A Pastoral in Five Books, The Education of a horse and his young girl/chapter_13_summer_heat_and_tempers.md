@@ -296,8 +296,4 @@ But Sage would be ready. Would choose patience over force. Would breathe through
 
 One breath, one choice, one moment at a time.
 
-Learning to control herself so she could communicate with them.
-
-Learning to be worthy of their trust.
-
 Even when—especially when—it hurt to learn it.

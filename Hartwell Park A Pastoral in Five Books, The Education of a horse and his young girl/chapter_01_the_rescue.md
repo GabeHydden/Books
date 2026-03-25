@@ -29,13 +29,11 @@ The carriage rounded a curve, and through the window Sage glimpsed a stone gateh
 
 The carriage slowed, turning through the gates, and Sage found she could not look at her aunt directly. Her face burned—not with shame, precisely, but with the sudden overwhelming sense of her own naiveté. She had been so certain she understood the world. Had been so sure of its rules, its hierarchies, its unspoken boundaries.
 
-And then Mr. Pemberton had cornered her in the library after dinner. The leering glances across the dining table had been uncomfortable but endurable. The comments about her figure, disguised as compliments, had made her skin crawl. When he'd followed her from the drawing room, positioned himself between her and the door, she'd felt the first flutter of real fear. His hand on her arm, too tight. Then her waist. Then—
+And then Mr. Pemberton had cornered her in the library after dinner. The leering glances across the dining table had been uncomfortable but endurable. The comments about her figure, disguised as compliments, had made her skin crawl. When he'd followed her from the drawing room, positioned himself between her and the door, she'd felt the first flutter of real fear. His hand on her arm, too tight. Then her waist. Then his hands around her throat, squeezing until the world went grey at the edges.
 
-She had said no. Had pushed at his chest. Had tried to slip past him.
+She had said no. Had pushed at his chest. Had tried to slip past him. And she'd understood with perfect, crystalline clarity that her voice, her will, her body meant nothing at all. That "no" was just a word men like him had learned to ignore.
 
-And then his hands had been on her throat, and she'd understood with perfect, crystalline clarity that her voice, her will, her body meant nothing at all. That "no" was just a word men like him had learned to ignore.
-
-*You misunderstood his intentions,* her mother had said, when Sage finally managed to speak of it two days later, bruises still livid on her throat. *Mr. Pemberton is a gentleman. You must have led him to believe—*
+*You misunderstood his intentions,* her mother had said, when Sage finally managed to speak of it two days later. *Mr. Pemberton is a gentleman. You must have led him to believe—*
 
 "I don't want to be anywhere," Sage said now, and was appalled to hear her voice crack. "But I suppose if I must be somewhere, I am grateful it is with you."
 
@@ -69,7 +67,7 @@ The blue room proved to be exactly that—walls painted the color of robin's egg
 
 "I imagine," Jennifer said, coaxing flame from the kindling, "that you've had quite enough of people making assumptions about what you need or feel. So I shan't assume. But I will say that supper is at seven, we keep informal hours, and you are welcome to join us or take a tray up here if you prefer. There's hot water for washing, and I believe Riley is bringing up your trunk. Is there anything you require immediately?"
 
-The kindness was almost harder to bear than her mother's dismissal had been. Sage pressed her fingers against her throat again, feeling the ghost of pressure that had nothing to do with healing bruises.
+The kindness was almost harder to bear than her mother's dismissal had been.
 
 "I don't—" She stopped, tried again. "I don't know what I'm meant to do here."
 
@@ -95,7 +93,7 @@ There was a knock, and Rebecca entered with a tray. She set it on the writing de
 
 Rebecca was quiet for a moment. Outside, the last light caught on a grey horse's coat, turning it briefly silver. "Many things. Brutality masquerading as training, most commonly. There are men—and it is always men, in my experience—who believe a horse must be *dominated*. Beaten into submission. They call it breaking for a reason, and they are proud of the speed with which they accomplish it." Her voice had gone hard as flint. "I don't break them. Never have. I work with them until they choose to work with me. It takes longer." She paused. "But it lasts."
 
-Sage thought of hands on her throat. But not just there—hands everywhere she hadn't wanted them, taking what they had no right to take. Of her mother's voice: *You must have misunderstood his intentions. Surely you did something to encourage—* She knew broken things, she realized. Knew them in her bones. Knew what it meant to fight back and be punished for it. To have your resistance labeled as the problem, rather than the violation that provoked it.
+Sage thought of hands everywhere she hadn't wanted them, taking what they had no right to take. Of her mother's voice: *You must have misunderstood his intentions. Surely you did something to encourage—* She knew broken things, she realized. Knew them in her bones. Knew what it meant to fight back and be punished for it. To have your resistance labeled as the problem, rather than the violation that provoked it.
 
 "There's a horse coming tomorrow," Rebecca said. "A six-year-old stallion who was intended for racing. His owner—a gentleman named Thornton—employed the usual methods. Beat him with crops, used draw reins to force his head down, applied a standing martingale so tight he could scarcely breathe. When the horse fought back, as any creature would when tortured, Thornton deemed him vicious. Sold him for slaughter." She paused. "I bought him from the knacker's yard three days ago. He arrives tomorrow morning."
 
@@ -107,7 +105,7 @@ She delivered this the way she delivered all information—completely, precisely
 
 Rebecca stood, moved toward the door, then stopped. "His name is Promise. I thought you should know that, in case you see him tomorrow. He is terrified of people, violent in his fear, and you must not approach him." She paused, seeming to weigh something. "But you may watch from a distance, if you wish. Sometimes that is where understanding begins."
 
-After Rebecca left, Sage remained at the window until full dark. Somewhere in the night, a horse whinnied—a sound both lonely and oddly comforting, proof of other living things moving through the darkness. She touched her throat one more time, feeling the tender places. Then, hesitantly, she wrapped her arms around herself—something she hadn't been able to do since that night. Her own touch felt foreign, as though this body belonged to someone else now. As though she were borrowing it, inhabiting it without permission.
+After Rebecca left, Sage remained at the window until full dark. Somewhere in the night, a horse whinnied—a sound both lonely and oddly comforting, proof of other living things moving through the darkness. Then, hesitantly, she wrapped her arms around herself—something she hadn't been able to do since that night. Her own touch felt foreign, as though this body belonged to someone else now. As though she were borrowing it, inhabiting it without permission.
 
 A horse named Promise. A household that operated by different rules. A place where broken things were not discarded but given space to exist.
 
@@ -117,6 +115,4 @@ She left the thought unfinished. It was too much to consider. Too much to hope f
 
 It was not hope, precisely. But it was not quite despair either. It was something else, something she had no name for yet.
 
-Perhaps that was enough, for now.
-
-Perhaps it was enough to simply exist, and see what came next.
+Perhaps it was something to simply exist, and see what came next.

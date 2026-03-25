@@ -297,7 +297,7 @@ And she thought about the future—not with fear, not with the old paralyzing te
 
 Spring was coming. She could feel it in the air, see it in the snowdrops pushing through frozen ground, hear it in the birds beginning to return. Winter's long dark was ending, and what grew in its absence was something worth waiting for.
 
-She closed her eyes and let sleep take her, dreaming of horses and love and the fair that would prove to the world what she already knew: that broken things could heal, that trust could be rebuilt, and that the hardest journeys were often the ones most worth taking.
+She closed her eyes and let sleep take her.
 
 ---
 

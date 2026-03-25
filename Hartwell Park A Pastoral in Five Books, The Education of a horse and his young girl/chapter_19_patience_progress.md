@@ -13,7 +13,7 @@ She pulled the apple from her pocket and he took it with that careful gentleness
 
 "Good morning to you too," she said softly. His ear swiveled toward her voice, that constant listening she'd come to rely on. "Ready for more work today?"
 
-Rebecca approached from the barn carrying the halter. They'd been at this for a week now—the same patient introduction, day after day. Show it. Let him smell it. Let him touch it. Take it away. Each session ending before he showed any real fear, building comfort through repetition rather than forcing acceptance.
+Rebecca approached from the barn carrying the halter. They'd been at this for a week now—the same patient introduction. Show it. Let him smell it. Let him touch it. Take it away. Each session ending before he showed any real fear, building comfort through repetition rather than forcing acceptance.
 
 "How's he seem this morning?" Rebecca asked, stopping at her usual distance.
 
@@ -83,7 +83,7 @@ She wished she could learn that skill.
 
 "I need you to work with Marcus again this morning," Rebecca said, shifting into the planning register that came most naturally to her — tasks laid out in sequence, each one building toward the next. "He's ready to try trotting with a rider, I think. But he's uncertain about it—needs someone patient."
 
-"I can do that." Sage had been working with the three-year-old gelding for weeks now, building on the foundation Rebecca had laid. He was sweet-natured but cautious, needing clear communication and time to think through each new request. Rather like Promise, she'd come to realize. Both of them asking for partnership rather than domination.
+"I can do that." Sage had been working with the three-year-old gelding for weeks now, building on the foundation Rebecca had laid. He was sweet-natured but cautious, needing clear communication and time to think through each new request.
 
 "And this afternoon, I thought you might ride out with Riley. There's a fence down in the south pasture that needs checking, and it would be good for you to ride some of the boundary paths. Learn the land better."
 
@@ -266,8 +266,6 @@ Soon, Sage thought. Soon it would be his turn. The halter was just the beginning
 But not yet. Not until he was ready. Not until every piece of foundation had been laid with the same patient care Rebecca had shown this morning.
 
 For now, there was just this: cool September afternoon, horses groomed and fed, work done well, Promise safe in his paddock watching the world with curious eyes instead of terrified ones.
-
-For now, that was enough.
 
 ---
 

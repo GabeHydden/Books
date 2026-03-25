@@ -12,9 +12,9 @@ Was she? Sage touched her face, found it was true. "I didn't realize."
 
 Sage considered this. It was true—she hadn't noticed the change happening, but she could feel the evidence of it now. Standing close to Jennifer didn't make her skin crawl. Sharing space felt natural rather than threatening.
 
-"Promise is teaching me," she said. "About patience. About how long things take. About how you can't force healing—you just have to show up, day after day, and let it happen."
+"Promise is teaching me," she said. "About patience. About how long things take. About how you can't force healing—you just have to show up and let it happen."
 
-"I think you're teaching each other." Jennifer reached out and touched Sage's hand briefly—warm, deliberate, gone. "You've both come so far. Both learning to trust again."
+"I think you're teaching each other." Jennifer reached out and touched Sage's hand briefly—warm, deliberate, gone.
 
 Sage thought about all the small moments that had built to this. Jennifer's hand brushing her shoulder and the startle fading. Riley's hands adjusting her seat and no flinch at all. The accumulation of touches that didn't hurt, presences that didn't threaten. Building a new understanding, one careful contact at a time.
 
@@ -30,7 +30,7 @@ She opened her book and began to read.
 
 Promise watched her for several minutes, then lowered his head to graze. The sound of him pulling up grass, chewing, breathing—it had become the soundtrack to her mornings. Familiar. Comforting. The ambient noise of trust being built.
 
-After perhaps twenty minutes, she heard hoofbeats approaching. Not Promise—he was still grazing near the fence. Someone riding across the field. She looked up to see Riley on Thunder, the gelding's bay coat gleaming in the morning sun.
+After perhaps twenty minutes, she heard hoofbeats approaching. Not Promise—he was still grazing near the fence. Someone riding across the field. She looked up to see Riley on Thunder, the gelding's dappled grey coat gleaming in the morning sun.
 
 Riley reined in at a respectful distance, staying mounted so as not to change the dynamic too much. "Morning. How's he doing today?"
 
@@ -181,7 +181,7 @@ She laid it out the way she always did — methodically, each point building on 
 
 "How often?"
 
-"Every time he comes to the fence during your sitting sessions. Eventually you can ask him to come by holding up the apple. But for now, let him approach on his own and reward him when he does." Rebecca's expression grew more serious. "And Sage? This is going to be slow. He might not touch you again for days. Might regress. Might have bad days where he stays in the corner again. That's normal. Healing isn't linear." She delivered this — the hard part, the part that might hurt — with the same even tone as the practical instructions. Not unkindly. Just completely.
+"Every time he comes to the fence during your sitting sessions. Eventually you can ask him to come by holding up the apple. But for now, let him approach on his own and reward him when he does." Rebecca's expression grew more serious. "And Sage? This is going to be slow. He might not touch you again for days. Might regress. Might have bad days where he stays in the corner again. That's normal." She delivered this — the hard part, the part that might hurt — with the same even tone as the practical instructions. Not unkindly. Just completely.
 
 Sage thought of her own healing. The days when she could eat breakfast with the household and feel almost normal. The days when she woke from nightmares about Mr. Pemberton's hands and couldn't leave her room until noon. The way her progress looked from the outside like it had been steady, but felt from the inside like three steps forward, two steps back, another step forward, one step sideways.
 
@@ -197,7 +197,7 @@ She read for half an hour. Promise grazed. The apple sat on the fence post, and 
 
 While she sat, she thought about touch.
 
-All the times she had been touched without choosing it. Her mother's performative embraces, staged for company. Dance partners whose hands wandered too close, too familiar. Mr. Pemberton's fingers on her arm, her waist, her throat.
+All the times she had been touched without choosing it. Her mother's performative embraces, staged for company. Dance partners whose hands wandered too close, too familiar. Mr. Pemberton's fingers on her arm, her waist.
 
 But this morning—Promise's nose against her shoulder, Riley's arms around her—this had been different. This had been touch that was offered and received. Given and accepted. A conversation rather than an assault.
 
@@ -232,17 +232,13 @@ They walked on in comfortable silence. Sage's mind was full of the morning's mom
 
 Rebecca was quiet for a long moment. "I don't know. Maybe never. He's a stallion, Sage. Young, traumatized, unpredictable. Even if he learns to trust you completely, riding is asking for a level of partnership he may never be able to give. Especially not with someone who's still learning to ride."
 
-The words landed with weight, but she recognized their truth. Her desire to ride Promise had as much to do with her need to prove something—to herself, to Thornton, to every man who'd treated her like property—as it did with the horse himself.
-
 "But," Rebecca continued, "if it does become possible, it will only be because you're becoming the kind of rider who deserves that trust. The kind who listens more than demands. The kind who can read a horse's fear and respect it. You're learning those skills. Whether you use them with Promise or another horse—that remains to be seen."
 
 They reached the paddock where Promise grazed in the evening light. He raised his head when they approached, ears forward, watching them without fear. Just watching. Present and calm and existing in his space with something that looked almost like contentment.
 
 "He's come so far," Sage said softly.
 
-"You both have." Rebecca's voice was warm. "Three weeks ago you couldn't sit at our supper table. Now you're mucking stalls and riding horses and defining trust in ways that would make philosophers weep. That's no small thing, Sage. That's transformation."
-
-Sage watched Promise watching her. Two creatures who'd been broken by men who believed in domination. Two creatures learning, slowly and carefully, that gentleness might be possible. That choice might be honored. That healing, while not linear and never complete, could still be real.
+"You both have." Rebecca's voice was warm.
 
 They walked back in comfortable silence. Rebecca went straight to her study — Sage could hear the familiar sounds of the desk drawer opening, the ledger being set out, the routine of evening record-keeping that seemed to settle Rebecca the way grooming settled a horse.
 
@@ -261,11 +257,5 @@ Sage sat. Jennifer set a cup in front of her and took the opposite chair.
 "She showed me plenty tonight."
 
 "Good. She's learning too." Jennifer's eyes were warm. "We all are."
-
-Tomorrow she would bring an apple. Would sit in her spot and read her book and offer the choice without demanding he take it. And the day after. And the day after.
-
-However long it took.
-
-She had learned patience. Had learned that rushing only broke what needed time to grow. Had learned that love—real love—meant being present, day after day, and letting someone else set the pace.
 
 Promise lowered his head and returned to grazing, comfortable in their presence. Not approaching. Not retreating. Simply there.

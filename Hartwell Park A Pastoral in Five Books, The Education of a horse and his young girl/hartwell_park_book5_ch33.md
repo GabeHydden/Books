@@ -6,7 +6,7 @@ She stood, joints protesting, and brushed straw from her skirt. Promise was alre
 
 "Today," she said quietly, reaching through the bars to touch his nose. "Today we go."
 
-His breath was warm against her palm. He didn't know what those words meant—couldn't understand about the fair or Thornton or any of it. He only knew she was here, and that was enough. She envied him that simplicity.
+His breath was warm against her palm. He didn't know what those words meant—couldn't understand about the fair or Thornton or any of it. He only knew she was here. She envied him that simplicity.
 
 The household was stirring when she crossed the yard to the house. Kitchen light spilled golden through the window; she could smell bread and bacon. Jennifer met her at the door with a cup of tea already poured.
 
