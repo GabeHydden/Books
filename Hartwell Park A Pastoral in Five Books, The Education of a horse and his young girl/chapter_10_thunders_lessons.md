@@ -196,23 +196,38 @@ Then Rebecca turned toward Sage and smiled. "He's doing well. Better than I expe
 
 ***
 
-That afternoon, Sage sat at the desk in her room with paper and ink, writing a letter to her mother that she'd been avoiding for weeks. Jennifer had suggested it might be time—not to ask permission or apologize, but to state the truth of her choices.
+That afternoon, Sage watched Promise's second session from outside the round pen. Rebecca asked him to change direction—stepping to block his forward path, redirecting his energy. Promise balked, ears back, unsure. Rebecca asked again, patient but firm. On the third ask, he turned, found the new direction, and Rebecca released immediately.
 
-*Dear Mother,*
+"He's confused," Sage said to Riley. "He keeps looking for the catch. Like he's waiting for the punishment when he gets it wrong."
 
-*I am writing to inform you that I will not be returning to Bath. I have accepted Aunt Rebecca's offer to remain at Hartwell Park permanently, where I am to be trained in the management and rehabilitation of horses. In time, I may assume responsibility for some portion of the estate's operations.*
+"He is waiting for that. Takes a long time to unlearn."
 
-*I am learning to ride under the instruction of Miss Hartwell's head groom. I work daily in the stables and paddocks, managing the care and training of thirty horses. I rise at dawn and work until dusk. My hands are calloused and my face is brown from the sun. I wear practical clothing suitable for farm work. I ride astride when I train, though I am learning sidesaddle for occasions that require it.*
+"Maybe if she didn't use the whip at all. Even held low like that—he sees it and his whole body changes. His neck goes rigid."
 
-*I know you will say I have disgraced myself and our family. That no gentleman will have me now. But I must ask you, Mother—what gentleman would have had me after Mr. Pemberton? What future did you imagine for me when you sent me away from Bath not because I was assaulted, but because I had the poor manners to object to it?*
+Riley glanced at her. "Rebecca knows what she's doing with the whip."
 
-*You chose to believe him over your own daughter. You blamed me for fighting back when he put his hands around my throat. You told me I had brought shame on our family by refusing to stay silent about what he did. So I will not apologize for choosing a life where my work matters more than my reputation, and where the people around me believe me when I tell the truth.*
+"I know she does. But look at him." Sage gestured toward the pen, where Promise had stopped again, body braced, eyes on the longe whip in Rebecca's left hand. "Every time she shifts it, he flinches. What if she tried a session without it entirely? Just her body and voice?"
 
-*Aunt Rebecca has offered me a future that has purpose and dignity. I am learning a trade. I am making myself useful. I am choosing this life, and I do not require your permission or your approval to do so.*
+Riley was quiet, watching. In the pen, Rebecca sent Promise forward again, and this time he moved willingly enough, but his inside ear stayed pinned back—not listening, Sage thought. Monitoring. Tracking the whip the way she'd once tracked every hand that came near her.
 
-*I hope you are well. I will write occasionally to inform you that I am safe and provided for, as I know you will be asked by your acquaintance. But I will not be returning to Bath, and I will not be apologizing for the choices I have made.*
+After the session, Sage approached Rebecca at the gate. "I think the whip is slowing him down."
 
-*Your daughter,*
-*Sage Morrison*
+Rebecca looked at her. The direct, assessing look that could feel like being pinned to a board. "The longe whip is a communication tool. It extends my reach. Without it, I can't effectively direct him from the center of the pen."
 
-She folded the letter, sealed it with wax, addressed it in careful script. Tomorrow she'd give it to Riley to post in the village. And then she would stop carrying her mother's disappointment like a weight around her neck.
+"But he's not hearing it as communication. He's hearing it as threat. His whole posture changes when you pick it up."
+
+"I'm aware of his response to the whip." Rebecca's voice had gone precise, clipped—the register she used when her methods were questioned. "I've been working with traumatized horses for fifteen years, Sage. The whip is held low, never raised above waist height, never used to strike. He'll desensitize to its presence through repeated exposure to its harmless use."
+
+"Or he'll just learn to tolerate it while his body stays terrified." The words came out sharper than Sage intended. "I can see it in him. You taught me to see it."
+
+The silence that followed had edges. Riley had gone very still by the fence.
+
+Rebecca closed the gate with careful precision. "You're not wrong about what you're seeing. But you're drawing the wrong conclusion from it. Removing the tool doesn't remove the fear—it just removes my ability to communicate clearly while we work through the fear." She met Sage's eyes. "I understand why you identify with his response to the whip. But identification isn't the same as expertise."
+
+The words landed like a slap. Not cruel—accurate. But accuracy could cut as well as cruelty.
+
+Sage said nothing. Turned and walked to the barn. Behind her, she heard Riley say something low to Rebecca, and Rebecca's short reply.
+
+She spent the rest of the afternoon grooming horses, working through the sting of it. Rebecca was probably right. Rebecca was almost always right about horses. But Sage had seen Promise's body, had read the tension that Rebecca apparently considered acceptable, and she couldn't make herself believe that what she'd seen didn't matter.
+
+The friction didn't resolve that day. At supper, Rebecca discussed the training schedule as though nothing had happened. Sage listened, contributed where asked, and didn't bring up the whip again. But something had shifted between them—not broken, but strained. The first real disagreement between student and teacher, and neither of them quite knew what to do with it.

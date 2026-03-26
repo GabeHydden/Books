@@ -146,7 +146,33 @@ Rebecca approached slowly, praise in every line of her body. When she reached hi
 
 "Well done," she told him. "We'll do this every day now. Just a few minutes. Just enough to teach without overwhelming."
 
-Promise leaned into her hand, and Sage felt something in her chest ease and tighten simultaneously. Progress. Healing. The slow work of building trust.
+Promise leaned into her hand, and Sage felt something in her chest ease and tighten simultaneously.
+
+Then Rebecca stepped back to ask him to circle again, and Promise misread it—saw the step as threat, not request. He wheeled and bolted, a sudden explosive burst of power along the rail, hooves hammering packed earth, his whole body a blur of black muscle and panic.
+
+The sound hit Sage before the thought did. Hooves on hard ground, fast and violent, the thud of a large body moving at speed. Her vision narrowed. Her hands found the fence rail and locked there, knuckles white, while her breath stopped in her chest.
+
+She wasn't in the round pen. She was in the library in Bath and someone was coming down the hall, footsteps fast and purposeful, and the door—
+
+*Count.* She didn't know where the instruction came from—Jennifer's voice, or Riley's, or her own. *Count what's real.* Fence rail under her fingers, warm from the sun. Smell of dust and horse. Rebecca's voice, steady and low: "Easy. Easy now. You're all right."
+
+Speaking to Promise. But Sage heard it too.
+
+Promise slowed, circled back, sides heaving. Rebecca waited, calm as stone. And Sage's breath came back, uneven but present, her heart hammering against her ribs while the June sun beat down on all of them.
+
+Riley, beside her, said nothing. Just shifted his weight so his shoulder was near hers—close enough to feel, not close enough to crowd.
+
+It passed. It always passed now—faster than spring, faster than those first terrible weeks. But it left her shaken in a way she hadn't expected, because she'd thought she was past this. Had felt so settled, so competent, so much herself again that the ambush of it—the body deciding before the mind could intervene—felt like betrayal.
+
+She uncurled her fingers from the fence rail one by one. Breathed. Watched Rebecca praise Promise for coming back to her, for choosing to stop rather than crash through the panels.
+
+"You all right?" Riley asked quietly.
+
+"Yes." It was mostly true. "I thought I was done with that."
+
+Riley didn't answer right away. Then: "You're better at it. That's not the same as done."
+
+No. It wasn't.
 
 Not equipment yet. Not demands for collection or speed or precision. Just: *Can you move when I ask? Can you stop when I release? Can we communicate?*
 

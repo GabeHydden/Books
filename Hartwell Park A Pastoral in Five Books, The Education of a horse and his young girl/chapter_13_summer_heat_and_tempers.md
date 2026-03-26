@@ -16,7 +16,7 @@ Sage accepted a plate of bread, cheese, and sliced apples gratefully. The warnin
 
 "I know," she muttered, leading him toward the barn. "I don't want to work in this heat either."
 
-In the barn aisle she tacked him with quick efficiency, wanting to get the work over with before the heat got worse. Saddle pad, saddle, girth cinched. She pulled the bridle off its hook and slid the bit into his mouth, buckling the noseband and throatlatch with practiced hands, her fingers moving through the motions without the careful inspection Riley had drilled into her in those first weeks. Thunder mouthed the bit, working it with his tongue, but Sage was already reaching for her gloves.
+In the barn aisle she tacked him with quick efficiency, wanting to get the work over with before the heat got worse. Saddle pad, saddle, girth cinched. She pulled the bridle off its hook and slid the bit into his mouth, buckling the noseband and throatlatch with practiced hands, her fingers moving through the motions without the careful inspection Riley had drilled into her in those first weeks. She hadn't thought about the tack check in days—hadn't thought about much, really, beyond the pleasant routine of work and horses and the slow satisfaction of competence. The vigilance that had defined her spring, the constant scanning that had once been exhausting and inescapable, had quieted to something she barely noticed. She felt safe. She felt settled. She felt, for the first time since Bath, like someone who didn't need to check every door and window and face in the room. Thunder mouthed the bit, working it with his tongue, but Sage was already reaching for her gloves.
 
 ***
 

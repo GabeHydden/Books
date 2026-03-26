@@ -144,13 +144,23 @@ Lord Ashworth's eyes moved to Sage, assessed her position, her seat, Thunder's c
 
 Something flickered in Lord Ashworth's expression—surprise at her honesty, perhaps, or approval of her giving credit to the horse. "Well. The master's about to call hounds. Do try to keep up."
 
-He rode off, and Sage glanced at Rebecca. "That could have been worse."
+He rode off, and a woman on a sleek bay hunter leaned toward her companion, voice carrying just enough to be heard. "Morrison. Isn't that the name—wasn't there some business in Bath? With the Pemberton family?"
 
-"Wait until we're actually riding. They'll be watching for mistakes, for evidence that our methods produce inferior horses." Rebecca's jaw was set, her body rigid in the way it went when she was among people she couldn't read — still and precise where another woman might have been gracious and warm. "We'll give them no such evidence."
+The companion murmured something Sage couldn't catch, but the first woman's glance slid toward her—not hostile, exactly. Appraising. The particular look reserved for girls whose names appeared in the wrong kind of whispered conversation.
+
+Sage's hands tightened on the reins. Thunder shifted beneath her, reading the tension in her body, and she forced herself to soften. To sit still. To meet the woman's gaze with the same calm directness Rebecca used when facing disapproval.
+
+The woman looked away first.
+
+Rebecca, who had heard every word, said nothing about it. Only: "Wait until we're actually riding. They'll be watching for mistakes, for evidence that our methods produce inferior horses." Her jaw was set, her body rigid in the way it went when she was among people she couldn't read — still and precise where another woman might have been gracious and warm. "We'll give them no such evidence."
 
 ***
 
-The hunt moved off at a trot, hounds ranging ahead, the field following. Thunder settled into his working rhythm immediately, ears forward, paying attention to Sage's aids despite the chaos of thirty horses moving together. Sage focused on staying balanced, keeping proper position, remaining aware of the horses around them.
+The hunt moved off at a trot, hounds ranging ahead, the field following. Thunder settled into his working rhythm immediately, ears forward, paying attention to Sage's aids despite the chaos of thirty horses moving together.
+
+Sage found herself reading the field the way she read a room—automatically, without deciding to. The chestnut three horses ahead was short-striding, ears pinned, about to kick; she steered Thunder wide before the chestnut lashed out, its rider yanking at the reins too late. A grey on their left was spooking at shadows, jigging sideways, and Sage gave it space a full stride before it shied. The bay behind them was too close, too eager, and she half-halted Thunder to let it pass rather than risk being crowded.
+
+Thirty horses and riders, and she was tracking all of them. Not because she chose to. Because her body couldn't stop scanning for threat, couldn't stop reading every shift of weight and set of ears in her peripheral vision. The skill that had kept her alive in drawing rooms and hallways—the constant, exhausting awareness of where everyone was and what they might do—was keeping her safe in a hunting field.
 
 When the pace increased to a canter, Thunder accelerated smoothly, and Sage went with him. The sidesaddle position that had seemed so precarious two weeks ago now felt secure enough. She could post Thunder's trot in company, could sit his canter, could half-halt when he got too forward without pulling on his mouth.
 

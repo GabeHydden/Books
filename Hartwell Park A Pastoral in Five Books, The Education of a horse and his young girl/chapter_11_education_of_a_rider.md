@@ -110,7 +110,19 @@ The trot approach, the slight lift over the pole, the three strides after. Again
 
 "Now two poles, three strides apart," Riley said, and adjusted the setup while Sage walked Whisper in a circle.
 
-The first time through, Sage counted wrong and Whisper had to adjust, but she did it willingly, ears forward, no complaint. The second time, Sage counted right and felt the rhythm—one-two-three over the first pole, one-two-three in between, one-two-three over the second. Whisper's happiness radiated through her whole body.
+The first time through, Sage counted wrong and Whisper had to adjust, but she did it willingly, ears forward, no complaint. The second time, Sage counted right and felt the rhythm—one-two-three over the first pole, one-two-three in between, one-two-three over the second. On the third approach, she felt Whisper's stride shorten a half-beat early—a fractional hesitation, a tightening in the mare's back—and sat deeper before they reached the pole, steadying without thinking.
+
+"You saw that," Riley said. It wasn't a question.
+
+"She was going to chip in. Her stride shortened."
+
+Riley studied her for a moment. "I didn't see it until she was on top of the pole. You felt it three strides out. How?"
+
+Sage didn't have an answer that wouldn't sound strange. The truth was she'd felt the shift the way she felt a room change—the way a voice dropped half a register, the way someone's weight moved to the balls of their feet. She'd been reading bodies for things they didn't mean to say since long before she'd ever sat on a horse.
+
+"Her ears," she said. "They went tight for a second."
+
+Riley nodded slowly but didn't press it. Whisper's happiness radiated through her whole body.
 
 "See how she is?" Riley called. "She's taking care of you. She knows her job so well that she's compensating for your mistakes. A good jumper will do that. But you can't ask her to do all the work. You need to help her. Count the strides. See the distance. Tell her when to lift."
 
