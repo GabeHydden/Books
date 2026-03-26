@@ -242,14 +242,61 @@ And she was.
 
 ***
 
-That night, in her room, Sage stood at the window looking out over the paddocks one last time before bed. The moon was nearly full, silvering everything it touched. She could just make out Promise in his enclosure, a darker shadow against the night grass.
+That evening, Rebecca called Sage into the study.
 
-A month. Her throat bore no marks. Her hands were calloused from work. And out in the paddock, a horse who'd been scheduled for slaughter was grazing peacefully in the moonlight.
+The desk was set with particular care—inkwell, pen, paper laid out in a neat stack. Rebecca sat in her usual chair, a copy of the mother's letter held flat by a small brass weight at the corner.
 
-Sage smiled at her reflection, at the stranger she was becoming, and closed the curtains.
+"It's time we answered your mother," Rebecca said. "What would you like to say?"
 
-Tomorrow would come soon enough.
+Sage had been thinking about this for weeks. The letter had sat in her mind like a coal, burning through everything else—the riding, the training, Promise's slow trust. She'd composed replies in her head during fence-sitting sessions, during mucking, during the quiet minutes before sleep. Furious letters. Pleading letters. Letters that explained, letters that accused, letters that begged her mother to believe her.
 
-And she was ready for it.
+She didn't want to write any of those.
+
+"I want to write the truth," she said. "And I want her to know I'm not coming back."
+
+"Then sit." Rebecca pushed the paper and pen across the desk and stood, yielding the chair—her chair, the one positioned at the precise angle she preferred, with the lamp arranged to cast no shadow across the writing surface. The gesture was not lost on Sage. This was Rebecca's desk, Rebecca's domain. She was giving it over.
+
+Rebecca moved to the side table and poured herself tea, settling into the window seat with a book. Present but not hovering. Available but not directing.
+
+Jennifer appeared in the doorway with a second cup, set it at Sage's elbow, and rested her hand briefly on Sage's shoulder before withdrawing. From the barn, the sound of Riley doing evening check—stall doors opening and closing, the low murmur of his voice as he spoke to each horse in turn.
+
+Sage picked up the pen.
+
+*Dear Mother,*
+
+*I have read your letter to Aunt Rebecca. I am writing my own reply because the matters you raise concern me, and I will speak for myself.*
+
+*I am not coming home.*
+
+*You write of nervous agitation. You know what happened to me in Mr. Pemberton's library. You saw the bruises. You chose to call it misunderstanding, and when I could not be persuaded to agree, you called it hysteria. I will not return to a household where the truth of what was done to me is treated as an inconvenience to be managed.*
+
+*You mention Mr. Hadley's legal opinion. I have consulted with Aunt Rebecca on the relevant law. A petition for guardianship may be filed by a paternal relation where the custodial parent has failed in her duty of protection. The circumstances of my departure from Bath—an assault committed by a guest received in your home, followed by your refusal to act—would constitute such a failure in any court. I do not wish to pursue this course. But I will, if you compel me to.*
+
+*You write that Mr. Pemberton is willing to let the matter rest. The matter does not rest with Mr. Pemberton. It rests with me. I am the one he injured, and I am the one who will decide what is done about it.*
+
+*I am well. I am learning work that has meaning and purpose. I am cared for by people who believe me. That last point, Mother, is the one I would ask you to consider most carefully.*
+
+*Your daughter,*
+*Sage Morrison*
+
+She set down the pen and flexed her cramped fingers. The letter sat on the desk, the ink still drying, and she read it through once. It was not the measured, circumspect language her mother would expect from a girl of seventeen. It was not polite. It was not the letter of someone who was hysterical or confused or suffering from nervous agitation.
+
+It was the letter of someone who knew exactly what had happened to her and refused to be silent about it.
+
+"I'm finished," she said.
+
+Rebecca came to the desk, read the letter once, and nodded. If she had opinions about the phrasing or the legal points—which she almost certainly did—she kept them to herself. She picked up the pen Sage had set down and added, beneath Sage's signature, in her own small precise hand:
+
+*I confirm the above in every particular and associate myself fully with my niece's position. Sage remains at Hartwell Park under my protection and at her own expressed wish. Any further correspondence on this matter should be directed to Mr. Greaves, solicitor, of Cheltenham, who holds my instructions. — R. Hartwell*
+
+She blotted the page, folded it precisely, and sealed it with the red wax she kept in the desk drawer.
+
+"I'll post it in the morning," Rebecca said. She placed the letter on the corner of the desk, aligned with the edge, and returned the brass weight to its spot. "Well done, Sage."
+
+Sage went out to Promise's paddock one last time before bed. The moon was nearly full, silvering everything it touched. He was a darker shadow against the night grass, grazing peacefully, and he raised his head when she approached the fence.
+
+"We're staying," she told him quietly. "Both of us."
+
+His ear flicked toward her voice. She stood there for a moment, the sealed letter waiting on Rebecca's desk, the household settling around her, and then walked back to the house.
 
 **END OF BOOK I: SPRING — ARRIVAL**

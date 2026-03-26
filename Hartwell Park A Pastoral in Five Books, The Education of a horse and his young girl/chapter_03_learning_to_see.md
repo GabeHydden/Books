@@ -54,15 +54,17 @@ Sage extended her hand, surprised by how much courage it took to reach toward th
 
 Sage watched. Thunder was indeed shouldering forward, ears pricked toward Riley but also occasionally pinned back at Whisper. The other mare—a chestnut with a white blaze—kept her head low, her body angled slightly away.
 
-"Whisper's scared?" Sage asked.
+"Whisper's deferring to him," Sage said. "She's waiting until he's finished."
 
-"Not scared. Subordinate. It's different. Thunder's higher in the hierarchy, so she defers. But watch—when he moves away, she'll come up for her share." 
+Riley paused mid-pour, glanced at her. "How do you know she's not just scared?"
+
+"Her weight's even on all four feet. She's not braced to run. And she keeps looking at the bucket, not at him—she wants the food, she's just waiting for the safe moment." Sage stopped, suddenly self-conscious. "I'm sorry. You were about to explain."
+
+"No. You're right." Riley studied her for a moment with an expression Sage couldn't quite read. "Most people take weeks to see the difference between fear and deference. You saw it in five minutes."
 
 Riley poured grain for Thunder, who ate with evident satisfaction. As soon as he finished and stepped back, Whisper moved forward, quick but still cautious, and began eating. Her whole posture changed—less compressed, more confident.
 
-"She was waiting for permission," Sage said, fascinated despite herself.
-
-"In a manner of speaking. Waiting for the safe moment." Riley glanced at her. "If you're planning to be here any length of time, you should learn this. Horses are honest in a way humans rarely are. They show you exactly what they're thinking, if you know how to look."
+"If you're planning to be here any length of time, you should learn this," Riley said. "Horses are honest in a way humans rarely are. They show you exactly what they're thinking, if you know how to look."
 
 Sage felt something catch in her chest. Honesty. These animals couldn't lie, couldn't pretend everything was fine while planning violence. What you saw was what existed.
 

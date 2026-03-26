@@ -26,6 +26,63 @@ Sage's hand went to her throat, that habitual gesture, but she caught herself ha
 
 ***
 
+The letter arrived with the morning post.
+
+Sage was in the kitchen with Jennifer, finishing breakfast, when Rebecca came in from the study carrying a single sheet of paper. She set it on the table in front of Sage without preamble, her expression unreadable.
+
+"This came today. It's from your mother. I've read it—it was addressed to me. You should read it as well."
+
+Sage picked up the letter. Her mother's handwriting—precise, slanted, the product of expensive schooling—filled the page.
+
+*Dear Rebecca,*
+
+*I write to inquire after the health and situation of my daughter, who departed Bath under circumstances I can only describe as distressing. While I appreciate your willingness to receive Sage during what has been a period of considerable nervous agitation, I must now request her return. The season is progressing, and her continued absence from society will only fuel the very speculation I have worked to suppress.*
+
+*I trust you understand that Sage is not yet of age, and that her removal from my household without my formal consent places both of us in an awkward position. I have consulted Mr. Hadley on the legal particulars, and he assures me that a mother's claim is clear in these matters.*
+
+*I do not wish to create unpleasantness. I ask only that Sage be returned to Bath by the end of the month, so that we may address this situation with the discretion it requires. Mr. Pemberton has expressed his willingness to let the matter rest, provided no further accusations are made public.*
+
+*Your affectionate sister,*
+*Caroline Morrison*
+
+The words blurred. Sage set the letter down because her hands were shaking too badly to hold it, and pressed her palms flat against the table, feeling the grain of the wood, the solidity of it.
+
+*Mr. Pemberton has expressed his willingness to let the matter rest.*
+
+As though he were the injured party. As though his magnanimity in not pursuing the girl who'd accused him were a gift they should be grateful for.
+
+"Sage." Jennifer's voice, near but not touching. A cup of tea appeared at her elbow—she hadn't seen Jennifer move to make it.
+
+Rebecca had pulled out a chair and sat down across from Sage. She had a piece of paper and a pen in front of her, and she began speaking in the precise, methodical tone she used when working through a problem.
+
+"The legal situation is this. You are seventeen. In England, your mother has custodial authority until you reach majority at twenty-one. However." Rebecca held up one finger. "I am your nearest paternal relation, your father's sister. I can petition for guardianship on grounds of the mother's failure to protect. The assault by Pemberton, your mother's refusal to act, and her subsequent attempt to return you to proximity with your assailant constitute grounds." A second finger. "Additionally, any court proceeding would require your mother to explain publicly why you left Bath, which she manifestly does not want. The threat of legal action is a bluff. She is counting on our fear of scandal matching hers."
+
+Sage stared at the letter on the table. *Nervous agitation.* Her mother had reduced everything—the assault, the bruises, the terror, the months of recovery—to *nervous agitation.*
+
+"She wants me back so she can pretend it didn't happen."
+
+"Yes." Rebecca said it without softening. "That is precisely what she wants."
+
+The rage came then—not the numb, frozen thing Sage had carried since Bath, but something hot and alive, rising from her stomach into her chest. She shoved back from the table, the chair scraping against the flagstones, and stood because sitting felt impossible when her whole body wanted to shake apart.
+
+"I won't go back. I won't."
+
+"No," Rebecca said. "You won't."
+
+Jennifer's hand found Sage's arm—light, brief, withdrawn before Sage could flinch. "You're safe here. The letter changes nothing about that."
+
+"I'll write to your mother," Rebecca said, pulling her paper closer. "And to Mr. Hadley. We'll settle this properly." She paused, studying Sage with that too-direct gaze. "But not today. Today you have work to do."
+
+Sage picked up the letter again. Read it once more. Then folded it, carefully, and set it aside.
+
+"I have a riding lesson," she said. Her voice came out flat and strange.
+
+Jennifer and Rebecca exchanged a glance. "You don't have to—" Jennifer began.
+
+"I want to ride." Sage was already moving toward the door. "I want to do something with my body that isn't shaking."
+
+***
+
 An hour later, Sage stood in her room staring at the trousers laid out on her bed. They were Riley's spare pair, rough canvas worn soft with use, and the sight of them made her breath catch.
 
 Ladies did not wear trousers. Ladies rode sidesaddle, modestly, with their skirts arranged just so. Her mother would be appalled. Would have been appalled—the correction came automatically now. Her mother was no longer a voice that mattered in her life.
@@ -132,15 +189,23 @@ Belong there. Sage tried to let her legs relax into the position Riley was showi
 
 "Your back," Riley continued, moving around to adjust Sage's shoulders. "Straight but not rigid. Think of a string pulling up from the top of your head. Weight down through your seat bones—do you feel them? You're sitting on two bones at the bottom of your pelvis. That's your foundation."
 
-Riley's hands on her shoulders, her back, her legs—all of it adjustment, teaching, completely without threat. When had touch stopped meaning danger? When had another person's hands on her body stopped triggering the memory of hands that had no right to be there?
+Riley's hand came to her knee again, repositioning the angle for the third time. "Heels down. You keep letting them creep up."
 
-Sage found her eyes were burning. She blinked hard.
+Sage forced her heels down. Riley's hand moved to her lower back, pressing gently. "Straighten here. You're collapsing through the middle."
 
-"You all right up there?" Riley asked, studying her face.
+She straightened. Clover walked on. Riley walked alongside, watching, assessing, and his hand came to her knee again—
 
-"Yes. I just—" Sage struggled for words. "I'm surprised I'm not afraid. Of this. Of you helping me."
+"I *know.*" The words came out sharp as a slap. Sage wrenched her leg away from Riley's hand, and Clover stopped, ears flicking back at the sudden tension. "Stop—just stop touching me. I know where my leg goes."
 
-Riley's expression softened. "Sometimes our bodies remember what's safe, even when our minds are still learning. Clover's safe. This is safe. Your body knows that."
+The paddock went very quiet.
+
+Riley stepped back. One step, then two. His hand dropped to his side and he stood still, giving her the same careful distance he gave a horse that had just struck out. His expression didn't close—that was the worst part. It stayed open, patient, and Sage could see in his eyes that he understood this wasn't about the riding, which made her want to scream because she didn't want to be understood. She wanted to be angry and have it be simple.
+
+"I'm going to walk away for a minute," Riley said, voice level. "Take some time with Clover. I'll be at the barn."
+
+He turned and walked away. Didn't look back. Didn't ask questions.
+
+Sage sat on Clover in the empty paddock, her hands shaking on the reins, and felt the anger drain out of her like water through sand, leaving behind nothing but the grit. Riley had been helping. Riley, who had never been anything but patient, who had fitted the tack room door with a hook without being asked, who spoke to her in the same steady voice he gave frightened horses—Riley, and she had drawn blood.
 
 Clover shifted her weight, and Sage gasped as the saddle moved beneath her. Every muscle locked up.
 
@@ -194,19 +259,17 @@ Sage understood. The household existed on the margins of acceptability as it was
 
 "Harder. Your balance is completely different—both legs on one side, sitting sideways to the horse's motion. If you lose your seat, there's nothing between you and the ground. But it can be done well." Riley's expression was serious. "Ladies have been hunting and jumping sidesaddle for generations. It's a real skill. We'll get you confident astride first, then teach you both."
 
-Both. The word settled something in Sage's chest. Not choosing between the practical and the proper, but learning both. Being capable in both modes.
+She dismounted without waiting for help. Untacked Clover with the mechanical precision Riley had drilled into her—girth first, then saddle, then bridle, each piece checked and hung properly. Led the mare back to her stall. Filled the water bucket. Measured the grain.
 
-It felt like a metaphor for something larger, though she wasn't ready to examine exactly what.
+Then she found a pitchfork and went to the stall Riley was mucking.
 
-Sage leaned against Clover's shoulder, letting the mare's solid warmth steady her. Her legs felt like water. Her back muscles were already complaining. But underneath the physical discomfort was something else.
+He looked up when she appeared in the doorway. Said nothing. Went back to forking soiled straw into the wheelbarrow.
 
-Exhilaration.
+Sage took the other side of the stall and began working. Fork, lift, deposit. Fork, lift, deposit. The rhythm of it, the physical labor, the smell of horse and straw and honest dirt. They worked in silence for a long time—twenty minutes, perhaps. Long enough for the stall to be stripped to bare floor, fresh straw spread, the water bucket refilled.
 
-She had ridden a horse. Had felt that strange, powerful creature move beneath her, responding to her smallest cues. Had trusted her body to do something it had never done before. Had let Riley touch her, adjust her, teach her, without once flinching into panic.
+"I'm sorry about earlier," Sage said, not looking up from the straw she was spreading.
 
-"Same time tomorrow?" Riley asked, beginning to untack Clover.
-
-"Yes," Sage said, and was surprised by her own certainty. "Yes. I want to learn this."
+"I know," Riley said. And they kept working.
 
 ***
 
@@ -282,13 +345,13 @@ That evening, at supper, Sage found herself eating with genuine appetite for the
 
 A look passed between Rebecca and Riley.
 
-"He's curious," Riley said. "He's been watching you work with the other horses all week. Watching you groom them, walk them out, today watching you ride. He's trying to understand what you're doing. What this partnership thing is that the other horses seem comfortable with."
+"He's curious," Riley said. "He's been watching you work with the other horses all week. Watching you groom them, walk them out, today watching you ride. He's trying to understand what you're doing."
 
-"That's what it is. What it should be, anyway." Rebecca set down her fork. "Not domination. Not submission. Partnership. Two beings choosing to work together because it benefits both."
+A look passed between Riley and Sage—brief, acknowledging something neither of them mentioned. The afternoon's friction. The silent repair. The work that had followed, side by side, without need for analysis.
 
-"Will I be able to ride him someday?" she asked quietly. "Promise?"
+"Same time tomorrow?" Riley asked.
 
-Rebecca was silent for a long moment. "I don't know. That will be his choice as much as yours. But you're learning what you need to learn. Learning how to listen to a horse. How to ask rather than demand. How to make yourself worth trusting." She paused. "Those are rare skills, Sage. Most people who work with horses never learn them."
+"Yes," Sage said. "I want to learn this."
 
 ***
 
@@ -296,7 +359,7 @@ Promise stood at the far end of his paddock in the evening light, watching the s
 
 But today was different. Today the small-human had done something new.
 
-He had watched from his space as the tall-human-who-moves-easy—the one with the voice that had no sharp-edges, the one who fed the other horses without pain—had brought out the old-calm-mare. The grey one who moved with the confidence of knowing she was safe, who had no fear-smell even when humans were close.
+He had watched from his space as the tall-human-who-moves-easy—the one with the voice that had no sharp-edges, the one who fed the other horses without pain—had brought out the old-calm-mare. The calm-one who moved with the confidence of knowing she was safe, who had no fear-smell even when humans were close.
 
 And then the small-human had climbed onto the old-calm-mare's back.
 

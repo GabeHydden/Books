@@ -74,6 +74,38 @@ Riley smiled. "You already are."
 
 ***
 
+**Day Thirteen**
+
+Riley needed fence wire from the village. "Come along," he said. "I could use a hand carrying."
+
+Market day had drawn more people than Sage was accustomed to seeing on her Sunday walks to church. The street was crowded with carts and livestock and women with baskets, the air full of competing voices. Sage kept close to Riley as they made their way toward the ironmonger's, weaving between a pen of geese and a woman selling eggs from a handcart.
+
+It was fine. She was fine. She had been coming to this village every Sunday for three weeks, sitting in the same pew, nodding to the same faces. This was familiar ground.
+
+They reached the ironmonger's shop. Riley went inside. Sage waited with the horses, which was easier than navigating the cramped interior, and watched the market flow around her.
+
+A man came out of the inn across the street. Nothing remarkable about him—middle-aged, well-dressed, a farmer or minor gentleman by his coat. He stopped in the inn doorway and stood there, blocking it, speaking to someone still inside. His voice carried across the street—a low, confident laugh, the easy authority of a man who had never once questioned his right to stand wherever he pleased and make others go around him.
+
+The laugh. The doorway. The shape of a man filling a space she would need to pass through.
+
+It wasn't him. She knew it wasn't him. Pemberton was in Bath, two counties away, and this man had never seen her, never spoken to her, never thought of her for a single moment of his life.
+
+But her body didn't know that. Her body saw: man, doorway, no way past. Her body heard: that particular pitch of laugh, the one that said *I take what I want and who will stop me.* Her body decided, without consulting her mind, that she was in the library again and the door was blocked and there was nowhere to go.
+
+She was gripping the hitching rail with both hands. Her vision had narrowed to a point. The market sounds—geese, voices, cart wheels on cobbles—receded to a distant roar, as though she were underwater and the world above was happening to someone else.
+
+Riley was beside her. She didn't know when he'd come out of the shop. He didn't touch her. Just stood where she could see him, the coil of fence wire over one shoulder, and said, "Thunder's near hind felt warm on the ride in. Would you check it for me?"
+
+A task. Her hands released the rail and moved to Thunder's leg. She ran her fingers down the cannon bone, around the fetlock, across the heel. The leg was fine—not warm, not swollen—and she suspected Riley knew that. But her hands were doing something now, something skilled and purposeful, and her breathing was following her hands back to steadiness.
+
+She checked all four of Thunder's legs. Then all four of Clover's. By the time she straightened, the man had left the inn doorway and the street was just a street and her heart had slowed to something like its normal pace.
+
+They rode home without speaking. At the gate, Riley said, "Market day's always crowded. Sundays are better."
+
+Sage nodded. Couldn't manage more.
+
+***
+
 **Day Fifteen**
 
 "Today we trot," Riley announced.
@@ -168,6 +200,52 @@ She had a voice. It was small, it was quiet, but it was hers. And here, in this 
 
 ***
 
+**Day Nineteen**
+
+Sage was carrying water buckets to the paddock trough—a task she could now manage without slopping half the contents on her boots—when she noticed Whisper standing oddly at the far end of the field. The mare's weight was shifted forward, her left hind barely touching the ground, and her head was higher than usual, ears flicking with discomfort.
+
+Sage set down the buckets and watched. Whisper took a step, then stopped. Took another. The gait was wrong—short and careful on that hind leg, as though the ground hurt.
+
+She found Riley in the barn, cleaning tack. "Something's wrong with Whisper. She's favoring her left hind. Won't put full weight on it."
+
+Riley looked up. "Since when?"
+
+"I don't know. I just noticed. She's standing differently—her whole posture's changed. Head up, ears tight. She's in pain."
+
+Riley set down the bridle and followed her out. They watched Whisper from the fence for a moment, then Riley climbed through and approached the mare quietly, running a hand down her shoulder before lifting the hind hoof.
+
+"There." Riley's thumb pressed near the heel, and Whisper flinched, pulling the foot away. "Abscess. Feel here—the heat."
+
+Sage reached through the fence as Riley brought Whisper closer. The hoof wall near the heel was hot to the touch, the tissue swollen beneath her fingers.
+
+"How long has this been brewing?" Sage asked.
+
+"Day or two at least. I checked her feet yesterday morning and missed it—must have been just starting." Riley set the hoof down gently. "Good catch. Another day and she'd have been properly lame."
+
+They brought Whisper into the barn. Riley showed Sage how to prepare a poultice—bran mash and Epsom salts, wrapped in burlap and bound to the hoof with twine. Whisper stood patient through the process, occasionally nosing at Sage's shoulder as if to say *yes, this, thank you*.
+
+"She'll need poulticing twice a day until it drains," Riley said. "I'll show you the wrapping tomorrow. You can take it on if you want."
+
+"I want."
+
+Rebecca appeared in the barn doorway as they were finishing. She looked at Whisper's wrapped hoof, then at Sage.
+
+"Riley says you spotted the lameness from across the paddock."
+
+"She was standing wrong. It was obvious."
+
+"It wasn't obvious. I walked past her this morning and didn't see it." Rebecca's gaze was direct, assessing. "Good eye."
+
+She left without further comment. That was Rebecca's way—observation delivered, no elaboration needed.
+
+That evening, Jennifer set a plate in front of Sage at supper and said, "Rebecca told me about Whisper. You don't miss much, do you?"
+
+It wasn't quite a compliment. It wasn't quite a question. Sage felt the truth of it settle somewhere uncomfortable—the reason she didn't miss much, the years of scanning every room and every face for the first sign of danger. The skill that had kept her alive in Bath and was now, improbably, keeping a horse sound.
+
+"I suppose I don't," she said.
+
+***
+
 **Day Twenty-One**
 
 Three weeks. Sage marked the anniversary of her arrival at breakfast, surprised by how different she felt. How much had changed in twenty-one days.
@@ -214,16 +292,14 @@ He'd crossed the last five feet. Had stood at the fence where she could touch hi
 
 ***
 
-That night at supper, Sage found herself fighting back tears she couldn't quite explain.
+That night at supper, Sage told them. "Promise came to the fence today. All the way to it. He just stood there, looking at me."
 
-"What's wrong?" Jennifer asked gently.
+Riley set down a fork. "Three weeks."
 
-"Nothing's wrong. Everything's—" Sage's voice cracked. "Promise came to the fence today. All the way. He just stood there. Looking at me."
+"Is that fast?"
 
-Rebecca and Riley exchanged glances — one of those silent communications Sage was learning to notice. Rebecca reached across the table and squeezed Sage's hand once, briefly, then released. Not lingering. Rebecca's touches were always precise, offered and withdrawn with the same economy she brought to everything.
+"Could have taken three months. Could have taken three years." Riley glanced at Rebecca. "With some horses, it never happens."
 
-"That's remarkable progress. Three weeks."
+Rebecca nodded once, the way she did when data confirmed a hypothesis. "You've had a useful week. The abscess catch, and now this."
 
-"Is it fast? Slow? I don't know what it means."
-
-"It means he's made a choice," Riley said. "Could have taken three months. Could have taken three years. With some horses, it never happens. But he chose to trust you enough to come close. That's everything."
+It was, Sage thought, the most Rebecca thing anyone had ever said—equating a horse's trust with a competent hoof inspection. But she understood what Rebecca meant. Both were the result of the same thing: showing up, paying attention, and letting the watching become something more than watching.

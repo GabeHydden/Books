@@ -92,6 +92,52 @@ Promise was still in his corner, watching the fence where she had been.
 
 ***
 
+Riley sent her for a grooming kit after lunch.
+
+"Third shelf, left side," Riley called from Marcus's stall, arms deep in the gelding's mane with a pulling comb. "The wooden box with the brass catch."
+
+The tack room was at the far end of the barn, past the feed store. Sage had been in and out of it half a dozen times this week—fetching brushes, returning halters, collecting the hoof pick Riley seemed to leave in a different spot each day. A small stone room lined with wooden shelves and hooks, bridles hanging in neat rows, the air thick with the smell of leather and neatsfoot oil.
+
+She found the shelf, found the box. Turned to leave.
+
+The door was shut.
+
+Wind, probably. Or someone walking past who'd pushed it closed without thinking. It didn't matter why. What mattered was the click of the latch and the sudden darkness—not complete, light still leaked around the frame and through a gap beneath—but dark enough. Close enough. The walls pressing in and the leather smell becoming something else, becoming the library, becoming the evening Mr. Pemberton had positioned himself between her and the door and she had understood with perfect clarity that the room had become a cage.
+
+The grooming box hit the floor. She was against the wall before she knew she'd moved, her back pressed to the cold stone, knees drawn up, hands at her throat. She could hear herself breathing—fast, shallow, the ragged panting of a creature that had run out of room to flee. She knew where she was. She knew this was the tack room at Hartwell and the door was not locked and no one was in here with her. She knew all of this and it changed nothing. Her body had its own memory, its own logic, and that logic said: *enclosed space, closed door, you cannot get out.*
+
+She tried to call for Riley. Her mouth opened. No sound came.
+
+Minutes passed. Or seconds. She couldn't tell. The darkness pressed against her eyes and the leather smell filled her nostrils and her hands shook against her throat and she was so tired of this, so tired of her own body betraying her, of being dragged back to Bath by a closed door and the smell of leather and a room that was too small—
+
+Light.
+
+The door swung open and Riley stood in the frame, backlit by the barn's grey afternoon light. He took in the scene—Sage on the floor, the grooming box spilled, her hands at her throat—and did not step inside. Crouched at the threshold, one hand holding the door wide, and spoke in the low, steady voice he used with horses who had nowhere left to run.
+
+"Door's open. Take your time. I'm right here."
+
+Sage couldn't speak. Couldn't look at him. The shame of it was worse than the fear—that she was sitting on the floor of a tack room, shaking, because a door had closed. That she had been undone by wind and a latch.
+
+Riley didn't move closer. Didn't reach for her. Just stayed where he was, crouching, holding the door, his voice continuing in that same unhurried calm. "There's no rush. Whenever you're ready."
+
+Slowly—so slowly—her breathing eased. The walls stopped pressing in. Her hands came down from her throat and she pressed them flat against the stone floor, feeling the cold, the grit, the realness of where she was. Hartwell. The tack room. Safe.
+
+She stood on legs that didn't want to hold her. Couldn't meet Riley's eyes. "I'm sorry. I don't know why I—"
+
+"Happens." Riley stood too, stepped back to give her room to pass through the doorway. "Door should've been propped. My fault."
+
+It wasn't his fault and they both knew it. But he said it as though it were the most obvious thing in the world—a problem with the door, not a problem with her—and something in Sage's chest loosened a fraction.
+
+She retrieved the grooming box with hands that still trembled. Riley had already turned back to Marcus's stall, working the pulling comb through the gelding's mane as though nothing had happened. As though the past five minutes were just a pause in the afternoon's work.
+
+Sage took the grooming box to Clover's stall and began brushing the mare with careful, methodical strokes. The rhythm of the work settled her hands. Clover's warmth settled the rest.
+
+She did not go back to the tack room that day. But when she passed it on her way to evening feed, she noticed the door was propped open with a new iron hook, bolted into the stone at chest height, the metalwork rough and recent.
+
+No one mentioned it. No one explained.
+
+***
+
 "You're going to catch your death sitting in wet grass," Jennifer noted that evening, when Sage appeared for supper with her second gown of the day, having changed out of the mud-soaked one.
 
 "Perhaps." Sage took her seat at the table—she'd managed to come down for meals now, though conversation still felt like moving through water. "But it seemed important."
